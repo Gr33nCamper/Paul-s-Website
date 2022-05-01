@@ -1,5 +1,5 @@
-ssh cs15lsp22adi@ieng6.ucsd.edu 
-
+import static org.junit.Assert.*;
+import org.junit.*; 
 
 public class TestRepoTester {
 
