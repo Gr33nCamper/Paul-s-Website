@@ -1,7 +1,5 @@
 *(Message 4 Edith below ↓↓↓)* 
 
-&nbsp;
-
 hEY ! 
 ChECk dis website to C wAT is up w PaULA .
 
