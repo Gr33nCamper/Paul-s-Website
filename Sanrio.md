@@ -5,9 +5,7 @@
 hEY ! 
 ChECk dis website to C wAT is up w PaULA .
 
-shE will peri0dically Update..
-
-&nbsp;
+&nbsp;&nbsp;&nbsp; shE will peri0dically Update..
 
 &nbsp;
 
