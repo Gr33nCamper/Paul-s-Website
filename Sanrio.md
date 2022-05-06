@@ -15,8 +15,6 @@ ChECk dis website to C wAT is up w PaULA .
 
 &nbsp;
 
-&nbsp;
-
 
 **May 6, 2022:**
 
