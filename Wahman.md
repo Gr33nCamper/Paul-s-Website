@@ -16,9 +16,11 @@ ChECk dis website to C wAT is up w PaULA .
 &nbsp;
 
 
-**May 8, 2022:**
+**May 9, 2022:**
 
-wHOLe ! LoTTA FRuiT . 🍓🍒🫐
+Man! I F33L LikE a WaHman . >
+
+[Shania Twain MV](https://youtu.be/ZJL4UGSbeFg)
 
 
 
