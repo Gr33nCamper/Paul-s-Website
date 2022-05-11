@@ -16,11 +16,14 @@ ChECk dis website to C wAT is up w PaULA .
 &nbsp;
 
 
-**May 9, 2022:**
+**May 11, 2022:**
 
-Man! I F33L LikE a WaHman . >
+*+!:) !! XO ! +* OK ! 🖤
+4 YRS . AGO 2DAY . . . *OK !+. 4U ** !++  
+!🖤& * DIE LIT  ! ** - SLATT +:)  
+++ 🖤#LOVE *
 
-[Shania Twain MV](https://youtu.be/ZJL4UGSbeFg)
+<a href="https://gifyu.com/image/SsYjV"><img src="https://s8.gifyu.com/images/giphy-36.gif" alt="giphy-36.gif" border="0" /></a>
 
 
 
