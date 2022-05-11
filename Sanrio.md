@@ -25,5 +25,7 @@ ChECk dis website to C wAT is up w PaULA .
 
 <a href="https://gifyu.com/image/SsYjV"><img src="https://s8.gifyu.com/images/giphy-36.gif" alt="giphy-36.gif" border="0" /></a>
 
+<a href="https://ibb.co/7Q4fCZD"><img src="https://i.ibb.co/w7skgPq/dielit.jpg" alt="dielit" border="0"></a>
+
 
 
