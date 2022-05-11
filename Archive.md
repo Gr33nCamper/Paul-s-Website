@@ -12,3 +12,11 @@ i jus h0pe he dont go ToO cRAZY wit dis raBBiT obsession ..
 **May 8, 2022:**
 
 wHOLe ! LoTTA FRuiT . 🍓🍒🫐
+
+&nbsp; 
+
+**May 9, 2022:**
+
+Man! I F33L LikE a WaHman . >
+
+[Shania Twain MV](https://youtu.be/ZJL4UGSbeFg)
