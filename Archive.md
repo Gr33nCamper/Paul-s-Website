@@ -33,3 +33,15 @@ Man! I F33L LikE a WaHman . >
 <a href="https://gifyu.com/image/SsYjV"><img src="https://s8.gifyu.com/images/giphy-36.gif" alt="giphy-36.gif" border="0" /></a>
 
 <a href="https://ibb.co/7Q4fCZD"><img src="https://i.ibb.co/w7skgPq/dielit.jpg" alt="dielit" border="0"></a>
+
+&nbsp;
+
+**Jul 12, 2022:**
+
+I'M 0n c0STCO Lit !
+
+Playboi Michael
+pLayBoi MiCHael
+PLaybOI MiCHAeL
+
+<a href="https://ibb.co/gd6BSdv"><img src="https://i.ibb.co/tz3WqzZ/Costco-Lit.png" alt="Costco-Lit" border="0"></a>
