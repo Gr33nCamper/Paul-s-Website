@@ -45,3 +45,11 @@ pLayBoi MiCHael
 PLaybOI MiCHAeL
 
 <a href="https://ibb.co/gd6BSdv"><img src="https://i.ibb.co/tz3WqzZ/Costco-Lit.png" alt="Costco-Lit" border="0"></a>
+
+&nbsp;
+
+**Jul 19, 2022:**
+
+TaC0 ! Tu3SdAY ! 🌮  > wAs . liT!
+
+da shRIMP 🍤 tAC0s _ok ! weR3 Delicious *+
