@@ -1,8 +1,8 @@
-**Jul 26, 2022:**
+**Jul 29, 2022:**
 
-ay0 wHY dA bASS 🔊 ! oN wIRED Lightning earP0DS aCtuALLy g0 kRAzY d03 ???
+sh0uLdn’t !+ hAV3 pUt tHaT muCh h0t . 🔥 ! sauCe oN > 🫑🧅 da fAjiTaS 🌯🥵 *💋
 
-m0Re than airPODS FR  
+sTuMMy . wUZ . aCtInG > UP dURiNG da fINAL  
 
 
 
