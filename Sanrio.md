@@ -1,8 +1,8 @@
-**Jul 29, 2022:**
+**Jul 31, 2022:**
 
-sh0uLdn’t !+ hAV3 pUt tHaT muCh h0t . 🔥 ! sauCe oN > 🫑🧅 da fAjiTaS 🌯🥵 *💋
+Good night !! we DID IT 🫡 🤧
 
-sTuMMy . wUZ . aCtInG > UP dURiNG da fINAL  
+tHANx 4 believing in U  
 
 
 
