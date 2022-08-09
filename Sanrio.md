@@ -7,7 +7,7 @@ SINCE LAST YR
 
 &nbsp;
 
-This iS Ah CerTiFiED cAT 🐈‍⬛ m0mENT
+This iS Ah CerTiFiED cAT 🐈‍ m0mENT
 
 LETS G000000000000
 
