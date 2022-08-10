@@ -35,3 +35,50 @@ LETS G000000000000
 *we ALSO got naked in the kitchen*
 
 *and ate Mr. Chen's eel 🙈🤪 :)* 
+
+&nbsp;
+
+&nbsp; 
+
+********************
+Hold on 
+
+...
+
+y0U th0uGhT > tHAT wUS it??!
+
+🤣🤣🤣🤣 
+
+Boy are YOU in for a surprise. 
+
+Because actually:
+
+&nbsp;
+
+CORYXKENSHIN. 
+
+(YES, U READ THAT RIGHT)
+
+DA SHOGUN HIMSELF. 
+
+HAS RETURNED. 
+
+LONG LIVE. DA SHOGUN. 🇯🇵
+
+SAMURAI STAND UP 🫡
+
+&nbsp;
+
+&nbsp;
+
+*(ok so I didn't exactly find out until the day after, but trust me..* 
+
+&nbsp; &nbsp; &nbsp; *I was still going BANANAS)*
+
+&nbsp;
+
+SMH, YouTube turned off my notifications for his channel
+
+#HowCouldIBeLateForHisReturn 
+#ATrueSamuraiAlwaysKeepsUpdated 
+#IWantNotificationsForALLFutureUploads
