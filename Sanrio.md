@@ -2,7 +2,41 @@
 
 6 yrs since Blonde.. 
 
-Mr. Breaux sure is taking his time. 
+Mr. Breaux sure is taking his time.
+
+Kendrick already dropped a follow-up to DAMN
+
+J. Cole dropped KOD and the Off-Season
+
+The Weeknd dropped Starboy, After Hours, and Dawn FM
+
+Kanye released ye, KIDS SEE GHOSTS, JIK, and Donda
+
+Drake released Scorpion, Dark Lane Demo Tapes, CLB, and Honestly, Nevermind
+
+Tame Impala released The Slow Rush
+
+Rocky released TESTING
+
+Tyler released Flower Boy, IGOR, and CMIYGL
+
+Earl released Some Rap Songs, FEET OF CLAY, and SICK!
+
+Future released FUTURE, HNDRXX, THE WIZRD, High Off Life, PXBP, and INLY
+
+Thugger released JEFFREY, Beautiful Thugger Girls, SMF, SL2, and Punk
+
+Travis released Birds and ASTROWORLD
+
+21 Savage released Issa Album, i am > i was, and SAVAGE MODE II
+
+Denzel Curry released TA13OO and MMESYF
+
+Uzi released LIR2, EA, PXBP, and the RED & WHITE EP 
+
+Gunna and Carti's entire discographies (so far) have happened
+
+&nbsp;
 
 I mean, at this rate 
 
