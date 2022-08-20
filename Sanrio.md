@@ -4,7 +4,7 @@
 
 Mr. Breaux sure is taking his time.
 
-Kendrick already dropped a follow-up to DAMN
+Kendrick already dropped a follow-up to DAMN.
 
 J. Cole dropped KOD and the Off-Season
 
