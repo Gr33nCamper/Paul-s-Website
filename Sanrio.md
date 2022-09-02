@@ -1,9 +1,9 @@
-**Aug 30, 2022:**
+**Sep 1, 2022:**
 
-HAPPY 20TH BIRTHDAY GIDEON 🎂🎉🎁 
+it'S ya faV ranCH GuRL.. 💕😝🐮💅🏽 
 
-LoVE U BRO ! 🤧
+pAULa WUUUUUUUUUUU !! 
 
-WiSH i COUld have been w U in-person t0DaY 
+xO_*+ XO 💋 _ love ! ❤️ 
 
-HoPE Ur lip gets better s00n. StAY saF3 🫡
+<a href="https://ibb.co/MMNYc6c"><img src="https://i.ibb.co/SRvhtrt/IMG-1887.jpg" alt="IMG-1887" border="0"></a>
