@@ -1,6 +1,6 @@
 **Sep 01, 2022:**
 
-it'S ya faV ranCH GuRL.. 💕😝🐮💅🏽 
+it'S ya faV ranCH GuRL.. 💕😝🐮💅
 
 pAULa WUUUUUUUUUUU !! 
 
