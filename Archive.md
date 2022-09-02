@@ -4,3 +4,5 @@
 
 [Aug 2022](https://r3dbabyvamp.github.io/Paula-s-Website/2022/Aug2022)
 
+[Sep 2022](https://r3dbabyvamp.github.io/Paula-s-Website/2022/Sep2022)
+
