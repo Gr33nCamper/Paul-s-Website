@@ -1,9 +1,13 @@
-**Sep 01, 2022:**
+**Sep 03, 2022:**
 
-it'S ya faV ranCH GuRL.. 💕😝🐮💅
+hEY yAL !! 🌟🎀
 
-pAULa WUUUUUUUUUUU !! 
+yA guRLLLL pAULA iS BACK.. w/ aN0THeR . on3 !> 💕😝🤭 
 
-xO_*+ XO 💋 _ love ! ❤️ 
+tRiED 0N thIS SUPER !> cUTe h3AD sCARF 
 
-<a href="https://ibb.co/MMNYc6c"><img src="https://i.ibb.co/SRvhtrt/IMG-1887.jpg" alt="IMG-1887" border="0"></a>
+i LUv it ❤️ * ok!+ 💋! XO ** !++ ❤️ 
+
+🍓🍓🍓
+
+<a href="https://ibb.co/99FTHSt"><img src="https://i.ibb.co/7JwWtL4/IMG-1903.jpg" alt="IMG-1903" border="0"></a>
