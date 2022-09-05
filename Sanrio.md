@@ -11,3 +11,19 @@ i LUv it ❤️ * ok!+ 💋! XO ** !++ ❤️
 🍓🍓🍓
 
 <a href="https://ibb.co/99FTHSt"><img src="https://i.ibb.co/7JwWtL4/IMG-1903.jpg" alt="IMG-1903" border="0"></a>
+
+___
+
+w3 dID iT. LET'S G00000000000
+
+f0rg3t iNdiaN fIsH TRAPs . anD r0dS ! 🎣 🙅‍♀️
+
+only +!:) crab 🦀 net and rock 🪨 needed > for THIS method 
+
+wHOLe > LoTTA cARP! 🎏
+
+mORe OTW...
+
+<a href="https://ibb.co/xGxw2nn"><img src="https://i.ibb.co/RPRtgXX/IMG-4212.jpg" alt="IMG-4212" border="0"></a>
+
+Br0 got cAUght in 4K 💀💀💀💀💀
