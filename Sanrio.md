@@ -77,4 +77,22 @@ Those twists and turns kinda had me worried for a sec
 
 Like surely there's no way they expect us to go 60 MPH around a corner like that?? 
 
-Had to slow down for safety reasons ⚠️ 
+Had to slow down for safety reasons ⚠️
+
+&nbsp;
+
+&nbsp;
+
+**Sep 05, 2022:**
+
+HEAT WAVE TODAy 🔥🔥🥵
+
+The high was above 100ºF
+
+Since we ran out of Bing CHiLLiNG, it was a sERiOUS eMERGeNCY 🚨
+
+Got some guava ice cream and five qts of Neapolitan 🍦🍓🍫
+
+Also raw salmon for sashimi, cocktail shrimp, and POWER-C MACHINE Naked
+
+Two watermelon 🍉 were also consumed at home
