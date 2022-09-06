@@ -1,29 +1,80 @@
-**Sep 03, 2022:**
+**Sep 04, 2022:**
 
-hEY yAL !! 🌟🎀
+*Half Moon Bay Trip*
 
-yA guRLLLL pAULA iS BACK.. w/ aN0THeR . on3 !> 💕😝🤭 
+We were off to a late start, but still made it to Sam's Chowder House
 
-tRiED 0N thIS SUPER !> cUTe h3AD sCARF 
+They kinda finessed me for the halibut tho...
 
-i LUv it ❤️ * ok!+ 💋! XO ** !++ ❤️ 
+<a href="https://ibb.co/ncTXpKk"><img src="https://i.ibb.co/KqYtn8y/IMG-1939.jpg" alt="IMG-1939" border="0"></a>
 
-🍓🍓🍓
+Like..cOME ON bRUH, th-THAT'S IT??????
 
-<a href="https://ibb.co/99FTHSt"><img src="https://i.ibb.co/7JwWtL4/IMG-1903.jpg" alt="IMG-1903" border="0"></a>
+i mean, for $32.95, I thought I would AT LEAST get more food or sides
 
-___
+\**sigh*\* SMH dude... SMH 
 
-w3 dID iT. LET'S G00000000000
+&nbsp;
 
-f0rg3t iNdiaN fIsH TRAPs . anD r0dS ! 🎣 🙅‍♀️
+Now I know why we don't eat out like that 
 
-only +!:) crab 🦀 net and rock 🪨 needed > for THIS method 
+I already don't like dining in and giving tips for service... 
 
-wHOLe > LoTTA cARP! 🎏
+THAT I COULD PERFORM MYSELF
 
-mORe OTW...
+"POURING WATER? OH DEAR, THAT MIGHT BE TOO TROUBLESOME, LET'S HAVE THAT KIND YOUNG GENTLEMEN COME OVER AND DO IT FOR US, ALTHOUGH HE DOES SEEM RATHER OCCUPIED TAKING ORDERS FOR OTHER GUE—" 
 
-<a href="https://ibb.co/xGxw2nn"><img src="https://i.ibb.co/RPRtgXX/IMG-4212.jpg" alt="IMG-4212" border="0"></a>
+BRUH THE PITCHER IS RIGHT THERE, WHY U GOTTA WAIT FOR SUM DUDE TO DO IT FOR YOU ??? 
 
-Br0 got cAUght in 4K 💀💀💀💀💀
+Listen, if they won't come over, fine. I'LL BE MY OWN WAITER THEN 😤💯
+
+Ed and I actually got up 
+
+went over to the cart with the pitchers 
+
+and refilled our glasses with water.
+
+What? 
+
+They're gonna say it's not allowed or something? 
+
+THIS IS AMERICA! 🇺🇸 🦅
+
+(Besides, we weren't infringing on anyone's rights)
+
+&nbsp;
+
+Crabs Ed picked up at the beach before the meal
+
+<a href="https://ibb.co/n8bW1Gt"><img src="https://i.ibb.co/DgtqMJT/IMG-1934.jpg" alt="IMG-1934" border="0" width="300" height="430"></a>
+<a href="https://ibb.co/42GyGwm"><img src="https://i.ibb.co/yp1T1mf/IMG-1936.jpg" alt="IMG-1936" border="0" width="300" height="430"></a>
+
+&nbsp;
+
+MUCH cooler at the beach, so calming to watch the waves 🌊
+
+and catch the sun ☀️, Vitamin D support
+
+Applied the Neutrogena dry touch sunscreen but later had to rE-apply sunscreen to not get buRNED
+
+miSS mE > w/ that sunbURn.
+
+I don't like feeling greasy 
+
+but I dISlike > getting sUNbURN3D . WAY > m0RE.
+
+nAH FR, im n0T eVN sure hOW eD didn't get burned  
+
+&nbsp;
+
+Drove the highway on the way back
+
+Eyes were watering like crazy, also nose was running like a faucet 
+
+And since it was a little bright outside, wore on da sunglasses 😎 
+
+Those twists and turns kinda had me worried for a sec
+
+Like surely there's no way they expect us to go 60 MPH around a corner like that?? 
+
+Had to slow down for safety reasons ⚠️ 
