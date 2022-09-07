@@ -95,4 +95,4 @@ Got some guava ice cream and five qts of Neapolitan 🍦🍓🍫
 
 Also raw salmon for sashimi, cocktail shrimp, and POWER-C MACHINE Naked
 
-Two watermelon 🍉 were also consumed at home
+Two watermelons 🍉 consumed at home as well
