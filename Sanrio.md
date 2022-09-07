@@ -1,88 +1,3 @@
-**Sep 04, 2022:**
-
-*Half Moon Bay Trip*
-
-We were off to a late start, but still made it to Sam's Chowder House
-
-They kinda finessed me for the halibut tho...
-
-<a href="https://ibb.co/ncTXpKk"><img src="https://i.ibb.co/KqYtn8y/IMG-1939.jpg" alt="IMG-1939" border="0"></a>
-
-Like..cOME ON bRUH, th-THAT'S IT??????
-
-i mean, for $32.95, I thought I would AT LEAST get more food or sides
-
-\**sigh*\* SMH dude... SMH 
-
-&nbsp;
-
-Now I know why we don't eat out like that 
-
-I already don't like dining in and giving tips for service... 
-
-THAT I COULD PERFORM MYSELF
-
-"POURING WATER? OH DEAR, THAT MIGHT BE TOO TROUBLESOME, LET'S HAVE THAT KIND YOUNG GENTLEMEN COME OVER AND DO IT FOR US, ALTHOUGH HE DOES SEEM RATHER OCCUPIED TAKING ORDERS FOR OTHER GUE—" 
-
-BRUH THE PITCHER IS RIGHT THERE, WHY U GOTTA WAIT FOR SUM DUDE TO DO IT FOR YOU ??? 
-
-Listen, if they won't come over, fine. I'LL BE MY OWN WAITER THEN 😤💯
-
-Ed and I actually got up 
-
-went over to the cart with the pitchers 
-
-and refilled our glasses with water.
-
-What? 
-
-They're gonna say it's not allowed or something? 
-
-THIS IS AMERICA! 🇺🇸 🦅
-
-(Besides, we weren't infringing on anyone's rights)
-
-&nbsp;
-
-Crabs Ed picked up at the beach before the meal
-
-<a href="https://ibb.co/n8bW1Gt"><img src="https://i.ibb.co/DgtqMJT/IMG-1934.jpg" alt="IMG-1934" border="0" width="300" height="430"></a>
-<a href="https://ibb.co/42GyGwm"><img src="https://i.ibb.co/yp1T1mf/IMG-1936.jpg" alt="IMG-1936" border="0" width="300" height="430"></a>
-
-&nbsp;
-
-MUCH cooler at the beach, so calming to watch the waves 🌊
-
-and catch the sun ☀️, Vitamin D support
-
-Applied the Neutrogena dry touch sunscreen but later had to rE-apply sunscreen to not get buRNED
-
-miSS mE > w/ that sunbURn.
-
-I don't like feeling greasy 
-
-but I dISlike > getting sUNbURN3D . WAY > m0RE.
-
-nAH FR, im n0T eVN sure hOW eD didn't get burned  
-
-&nbsp;
-
-Drove the highway on the way back
-
-Eyes were watering like crazy, also nose was running like a faucet 
-
-And since it was a little bright outside, wore on da sunglasses 😎 
-
-Those twists and turns kinda had me worried for a sec
-
-Like surely there's no way they expect us to go 60 MPH around a corner like that?? 
-
-Had to slow down for safety reasons ⚠️
-
-&nbsp;
-
-&nbsp;
-
 **Sep 05, 2022:**
 
 HEAT WAVE TODAy 🔥🔥🥵
@@ -96,3 +11,32 @@ Got some guava ice cream and five qts of Neapolitan 🍦🍓🍫
 Also raw salmon for sashimi, cocktail shrimp, and POWER-C MACHINE Naked
 
 Two watermelons 🍉 consumed at home as well
+
+___
+
+wENT 2 dA pOND ! AgAIN
+
+its volume had decreased since last time 
+
+but still had > an ABUndance . of cARP 
+
+<a href="https://ibb.co/6rFF37L"><img src="https://i.ibb.co/8N99WLt/IMG-1941.jpg" alt="IMG-1941" border="0" width="500" height="420"></a>
+<a href="https://ibb.co/DLVJhVX"><img src="https://i.ibb.co/N7Vv5Vh/IMG-1944.jpg" alt="IMG-1944" border="0" width="500" height="420"></a>
+
+&nbsp;
+
+caugHT > m0R3 caRp. LGGGGGGGG
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://user-images.githubusercontent.com/102704162/188999901-ebe47e04-57d2-48fd-9a79-091dd4840337.jpeg)
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://ibb.co/ctcV2Th"><img src="https://i.ibb.co/TRBdPhM/IMG-1947.jpg" alt="IMG-1947" border="0" width="575" height="420"></a>
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<a href="https://ibb.co/6v88JZY"><img src="https://i.ibb.co/f899GSM/IMG-1955.jpg" alt="IMG-1955" border="0" width="690" height="504"></a>
+
+<a href="https://ibb.co/w6CyNDY"><img src="https://i.ibb.co/5cvTWq2/IMG-1959.jpg" alt="IMG-1959" border="0" width="650" height="550"></a>
+
+d0nT wORRY, we 0nLY caught and reLEasED 
+
+still haven't finished the one carp we brought home..
+
+we only catch as much as we can consume
