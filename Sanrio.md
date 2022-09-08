@@ -20,8 +20,8 @@ its volume had decreased since last time
 
 but still had > an ABUndance . of cARP 
 
-<a href="https://ibb.co/6rFF37L"><img src="https://i.ibb.co/8N99WLt/IMG-1941.jpg" alt="IMG-1941" border="0" width="500" height="420"></a>
-<a href="https://ibb.co/DLVJhVX"><img src="https://i.ibb.co/N7Vv5Vh/IMG-1944.jpg" alt="IMG-1944" border="0" width="500" height="420"></a>
+<a href="https://ibb.co/6rFF37L"><img src="https://i.ibb.co/8N99WLt/IMG-1941.jpg" alt="IMG-1941" border="0" width="400" height="325"></a>
+<a href="https://ibb.co/DLVJhVX"><img src="https://i.ibb.co/N7Vv5Vh/IMG-1944.jpg" alt="IMG-1944" border="0" width="400" height="325"></a>
 
 &nbsp;
 
