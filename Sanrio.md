@@ -80,7 +80,7 @@ then yes, I would completely understand why you would not know this about me fro
 
 &nbsp;
 
-Or if you did already know that. 
+Or if you did already know that 
 
 Why don't you just tell me straight up and be mature about it?
 
