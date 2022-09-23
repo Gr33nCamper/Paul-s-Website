@@ -1,79 +1,45 @@
-**Sep 21, 2022:**
+**Sep 23, 2022:**
 
-purchased Gloom Shroom from Crazy Dave's shop
+Elevator? Nah I always take the stairs bRuh.
 
-tested out the garlic and row of marigolds strategy
+bC U nevr > kno when there's gONNa be fire 🔥
 
-might need to modify that for getting the 8k sun achievement one day
+By which I mean Carti or Uzi dropping  
 
-Went to H-Mart for dinner and enjoyed a Pork cutlet combo meal just before the place closed
+Unless there's several floors, in which case I would take an elevator up
 
-Got ingredients for mashed potatoes (which will be served at the Juniors welcome back potluck)
+but on the way down, I don't mind so much
 
-Brian came by to drop off an OLED switch.
+and you get some extra exercise 
 
-*Ahem* * *Ahem* * BRIAN CAME BY TO DROP OFF AN OLED SWITCH
-
-BRIAN CAME BY TO DROP OFF— Ok ok, I think you get the idea
-
-Nah, but actually he kind of the goat for that you know 
-
-He really didn't have to 
-
-Really
-
-But he did 
-
-And I'm saying we should host him over sometime for a special meal
+stAiR ! mASt3R . rEAL LiFE > eDiTi0N  
 
 --- 
-2MANY (Taking My Swag) leaked after a group buy for like $8K.
 
-IT'S BEAUTIFUL.
+I may have missed the first foundations of mathematical analysis course today 
 
-Super unique beat from Richie Souf. Sounds kinda like jumping and there's these short digital beep sounding flares that start soft but then get louder and cut off  
+bc I stayed up a LITTLE too late last night
 
-Apparently this was recorded in Oct 2019 
+was super sweaty last night
 
-WATCHU KNOW ABOUT DAT BABY VOICE CARTI?? 
+but it's all good bc I shower in the mornings 
 
-I WAS ALIVE DURING THAT TIME YOU KNOW.
+to get rid of all the grease in one shot. 
 
-I'M LOVING THIS LEAK SZN.
+You know, like when you wait for a bunch of zombies to enter a lane 
 
-&nbsp;
+and then incinerate them with a jalapeno? 🌶🔥
 
-&nbsp;
+I'll need to wash my pillow and blanket covers 
 
+Also the pillow itself after I get a tennis ball 🎾 
 
-**Sep 22, 2022:**
+bc that thing is F1ltHY
 
-I AM A SPACE CADET THE GEEK THAT REALLLLLLLLLLL 🧑‍🚀🚀🔥👾💕
+the good news is, I got up around 8:40a which is much earlier than when I've been getting up the past few days (around 11:50a)
 
-REALLLLLLL REALLLLLLL REALLLLLLL REALLLLLLL
+Now I just need to sleep around 11 or 12 tonight bc if I try something super early, it won't work.
 
-*EXPLOSIONS AND SPACE BLASTERS GOING OFF*
+I tried that before the Carti concert last November by going to bed around 10, but I couldn't fall asleep until like 12 or 1
 
-I KNOW U HEARRRRRR ME CALLINGGGGGGG ☎️
-
-I DONT DOOOOO THIS OFTENNNNNNN 🙅‍♀️
-
-I'M NOT USEDDDDD TO STALLINNNNNNNNNNNN 😤 
-
-I'M JUST USED TO CAA-AY-AYAKE 🍰
-
-&nbsp;
-
-I was listening to "SPACE CADET" as soon as I walked outside
-
-Had the shades on too bc you know it's super bright
-
-Get the right mood going
-
-FA'22 
-
-HAS OFFICIALLY BEGUN
-
-AND NO, WE AINT HERE TO PLAY
-
-FREAK U THINK U THOUGHT, JUST WATCH ME
+Also I'll shower before bed this time since I'd rather not bathe in grease for 8 HOURS
