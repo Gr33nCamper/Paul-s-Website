@@ -43,3 +43,17 @@ Now I just need to sleep around 11 or 12 tonight bc if I try something super ear
 I tried that before the Carti concert last November by going to bed around 10, but I couldn't fall asleep until like 12 or 1
 
 Also I'll shower before bed this time since I'd rather not bathe in grease for 8 HOURS
+
+--- 
+
+bRUh, RoLLiNG Loud for real stopped the live stream for carti's set 😡 #SmhWeWannaSeeCarti #FalseAdvertising 
+
+I was waiting outside Peterson Hall watching on YouTube with wired headphones, one in and one out
+
+Waited so long that the beat started getting repetitive bruh. Like, they couldn't have cycled between beats or something? 
+
+SWITCH IT UP BRUH I'M TIRED OF HEARING THE SAME LOOPED BEAT AGAIN AND AGAIN 
+
+When they showed the Day 2 setlist screen I was like ok so they're not gonna stream? Bet! I'm outta here
+
+Then I went to Good News Night
