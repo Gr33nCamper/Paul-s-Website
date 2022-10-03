@@ -1,4 +1,5 @@
-**Sep 29, 2022:**
+**Oct 03, 2022:**
 
-Saw *Avatar* in theatres real 3D for the first time in my life. *+wow !
-BEST. MOVIE. SEEN. THIS. YR. (SO FAR)
+Recrystallization... supremum and infimum ... Maxwell-Boltzman distribution... Well-Ordering Principle
+
+... what, you guys don't think about this stuff at 3 in the morning? Just me? Ok, I'll go to bed now 👉🛌 
