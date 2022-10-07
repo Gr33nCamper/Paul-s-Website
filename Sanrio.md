@@ -1,5 +1,5 @@
-**Oct 03, 2022:**
+**Oct 06, 2022:**
 
-Recrystallization... supremum and infimum ... Maxwell-Boltzman distribution... Well-Ordering Principle
+Went to Joseph's apt today for dinner. leaRND how to gRiLL meat with bbq grill and charcoal, played some Coupe, sang "Misty Mountains"
 
-... what, you guys don't think about this stuff at 3 in the morning? Just me? Ok, I'll go to bed now 👉🛌 
+Glad we didn't miss this chance, back in April we wEREn't rEADy 
