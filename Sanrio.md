@@ -1,4 +1,4 @@
-**Oct 10, 2022:**
+**Oct 11, 2022:**
 
 Too much sauce on poki bowl, rice got drenched 🍚
 
