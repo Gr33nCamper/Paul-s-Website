@@ -1,5 +1,5 @@
-**Oct 11, 2022:**
+**Oct 12, 2022:**
 
-Too much sauce on poki bowl, rice got drenched 🍚
+Langostino lobster 🦞 bowl from Rubio's > dELiCioUS! 😋
 
-Got from Makai at 6th, which I just found out existed today
+I like shrimp, bc of Bubba Gump Shrimp Co. and the tenderness but lobster kinda on another level, you know?   
