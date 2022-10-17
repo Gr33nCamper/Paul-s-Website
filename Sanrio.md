@@ -1,9 +1,20 @@
-**Oct 14, 2022:**
+**Oct 15, 2022:**
 
-sMH, how da hOTspot slower than Wi-Fi @ SD Airport ?? 🙄
+New aesthetic unlocked! American Midwest countryside in da Fall 🍂🍁🌽🚜
 
-i'M jus tryiNG to catch up on > Sum math LECTures b4 midterms
+i’m Loving this fall foliage 🧡
 
----
+<a href="https://ibb.co/MsWt6XZ"><img src="https://i.ibb.co/f2Byvcq/IMG-2196.jpg" alt="IMG-2196" border="0" height="300" width="450"></a>
+&nbsp;<a href="https://ibb.co/NtQM9vM"><img src="https://i.ibb.co/hLhSB6S/IMG-2209.jpg" alt="IMG-2209" border="0" height="300" width="450"></a>
 
-<a href="https://ibb.co/3vGNR5B"><img src="https://i.ibb.co/1MhqzY8/Screen-Shot-2022-10-14-at-5-06-05-PM.png" alt="Screen-Shot-2022-10-14-at-5-06-05-PM" border="0" height="70" width="420"></a>
+Also I was listening to *Innerspeaker* on the flight and that fits the theme a little tOo well > brUH
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/2KdfKQT/Tame-Impala-Innerspeaker.png" alt="Tame-Impala-Innerspeaker" border="0"></a>
+
+&nbsp; 
+
+**Oct 17, 2022:**
+
+BACK IN SD! 4U! ALMOST NO SL33P, SO HAD TO SIP SOME COFFEE THIS MORNING ☕️
+
+I'VE HAD QUITE ENOUGH OF CROWDED AIRPORTS TO TELL YOU THE TRUTH. GLAD TO BE HOME.
