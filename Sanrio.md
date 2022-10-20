@@ -1,41 +1,51 @@
-**Oct 19, 2022:**
+**Oct 20, 2022:**
 
-Getting up before 11a is so new to me it's like wow the sun actually exists
+Ed better not be capping about the Edith and Paula adventure in December bRuh [^1]
+
+Otherwise, 
+
+That's it. 
+
+eDiTH is nO loNGER pAULa's sister 😡🙅‍♀️💔
+
+eDiTH &gt;  💕 💋 > bANNeD fROM . da ranch ❌🐄
+
+g00dbYE! 👋
+
+---
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;"I've
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; been
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;waiting on
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;this
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;my
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;whole
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;life"
+
+-Kanye West, "I Wonder" *Graduation* [^2] (Sep 11, 2007)
+
+---
+
+Good news! The PCR test from Tues didn't detect any signs of SARS-CoV-2
 
 --- 
 
-I just know i got absolutely ReKT on the Math 140A midterm 🫠
+Why does time go by so fast...
 
-Gotta get some more practice using the definitions/theorems/lemmas/corollaries. 
+Wasn't Monday just yesterday when I was at the Las Vegas airport?
 
-Also I took a look at Cantor's Diagonalization argument on YouTube and I'm like hold on a min... I see what the goal is!
+---
 
-To prove that the set of all real numbers is uncountable:
+Saw Purg today on my way to Geisel. That reminds me, I should get back to work 🙃 
 
-Let A be the set of all real numbers and E be a subset of A (the set of all real numbers between 0 and 1 with only 3 and 4 as digits).  
+---
 
-Assume for the sake of contradiction that E is countably infinite, so it can be written as the set of all such numbers e_1, e_2, e_3, ...., e_n
+[^1]: You see, those wigs weren't just for fun — we're actually gonna be wearing them outside. I mean, don't get me wrong, it was insanely fun acting a fool in da mirror at 3 in the morning, but it's really for the character you know? Auburn/reddish brown wig for Paula Wu and silver wig for Edith Choi. When we're acting our characters, they assume Asian ethnicities for obvious reasons. Although, I might need a longer silver wig later on   
 
-We make a number e that differs from every number in E in at least one decimal position in this manner: 
-
-if the nth digit of the nth number is a 3, change it to a 4. Vice versa if digit is 4.
-
-So we see that {e_1, e_2, ... , e_n},  
-
-(the countably infinite set containing all the numbers in E)
-
-doesn't actually contain one number that is different from the rest and also belongs to E. 
-
-Since we made the number an arbitrary sequence of digits this means no matter what, that subset will not contain one such number.
-
-Thus, there is a contradiction, so our initial assumption that E is a countable set must have been false. 
-
-&nbsp; 
-
-Now, since E is a subset of A and clearly doesn't contain all of A's elements, it is smaller.
-
-If E, the smaller subset of the larger set, is already uncountable 
-
-then we can reasonably conclude that the larger set must also be uncountable 
-
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;⬛️
+[^2]: This album kinda hitting different compared to when I first listened to it back in Spring Quarter last year. Then in June when I was walking around the Guardino area of Fremont and to the back of Lake Elizabeth when Jack was getting physical therapy. The samples are awesome and the synths are so colorful and there's like piano and orchestral stuff going on in the background but overall I think it illustrates growing up very well and moving forward in life. I mean, graduation is literally less than two years away. I definitely don't think I would have been able to comprehend what Ye was talking about back in senior year of high school and the remote era.    
