@@ -1,13 +1,13 @@
-**Oct 21, 2022:**
+**Oct 24, 2022:**
 
-Finally tried Raising Cane's! 🐓🍞 AT LA$T. 
+One yr since last Carti tweet, nearly 8 months since last IG post, 3 days since last IG story (but it was only promo for Narcissist merch).
 
-Got da Caniac combo w/ Arnold Palmer (half lemonade/half sweet tea). The sauce is good, but I kinda prefer the Chick-Fil'A sauce more. Texas Toast and coleslaw were good too but I think I should have gone with more coleslaw to balance out the salt. Also these dudes really didn't have cups to hold the ketchup, smh. So I was dipping fries into the sauce. 
+The merch ain't it btw. 
 
-And come on, there's only Chicken tenders? What about some wings or drumsticks?? Deserts??? They kinda need to expand their menu a little you know? I like chicken as much as the next guy, but that's not the only food I like. Matter of fact, I kinda like porkchops more now. Also shrimp and salmon. 
+Almost 1 yr, 7 months since Carti's last music video (for his own song, ik he was featured in the MTR mv). 2 yr anniversary of WLR will be here sooner than we think 🧛🏾‍♀️🎄
 
 ---
 
-Oh, and we went to the driving range before that 🏌️‍♂️. Actual golf is nothing like Wii Sports golf 
+pHO La Jolla 🍜 > toDAy 4 dinner . It was good but a little overpriced
 
-I think I'd be better at putting short distance tbh because I kept trying to gear up for super heavy hits but missed
+Oh also the Vietnamese bbq pork sandwich kinda made me think about HOC3 Youth retreats back in February bc those are some of the only times I ever ate Vietnamese sandwiches. Good memories. And I like da sandwich 
