@@ -1,13 +1,7 @@
-**Oct 24, 2022:**
+**Oct 26, 2022:**
 
-One yr since last Carti tweet, nearly 8 months since last IG post, 3 days since last IG story (but it was only promo for Narcissist merch).
+First nighttime run on UCSD track. Super peaceful 🌙 
 
-The merch ain't it btw. 
+Also I really need to listen to the vamp security playlist on shuffle more. 
 
-Almost 1 yr, 7 months since Carti's last music video (for his own song, ik he was featured in the MTR mv). 2 yr anniversary of WLR will be here sooner than we think 🧛🏾‍♀️🎄
-
----
-
-pHO La Jolla 🍜 > toDAy 4 dinner . It was good but a little overpriced
-
-Oh also the Vietnamese bbq pork sandwich kinda made me think about HOC3 Youth retreats back in February bc those are some of the only times I ever ate Vietnamese sandwiches. Good memories. And I like da sandwich 
+Although I like listening to albums in order, I don't mind listening to playlists on shuffle bc it kinda gets boring if I know exactly which song will follow. Shuffling spices things up (Unless it's the Spotify free version shuffle). All the playlist songs I like in some way, even if the moods are different. Just like I swing between listening to certain artists, like Uzi and Carti, or the familiar and the foreign, or between wanting to see people and wanting to be alone, I figure it seems I also swing between uniform/orderly and mixed/disordered. So when I want some more cohesive or thematic stuff, I'll listen to albums in the order they are arranged
