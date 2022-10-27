@@ -1,5 +1,4 @@
-# Paula-s-Website
-Paula Wu's personal website
+# Paula-s Website
 
 hEY yALL, it's ya GURL Paula WUUUUUUUUU !! 😝💕🐮🤭
 
