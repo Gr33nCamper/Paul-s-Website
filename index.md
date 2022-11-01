@@ -1,3 +1,3 @@
-[Current (Oct 28)](https://r3dbabyvamp.github.io/Paula-s-Website/Sanrio)
+[Current (Oct 31)](https://r3dbabyvamp.github.io/Paula-s-Website/Sanrio)
 
 [Archive](https://r3dbabyvamp.github.io/Paula-s-Website/Archive)
