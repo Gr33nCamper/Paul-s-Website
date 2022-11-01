@@ -1,58 +1,29 @@
-**Oct 29,2022:**
+**Oct 31,2022:**
 
-1 yr since the most iconic Carti RL set in NY
+. MoNDaY > n0BLe vAMP hours 🧛🏾🎃
 
-and when “Demon High” dropped
+FinALLY wore on a vampire costume, which I had been thinking about since last yR 
 
---- 
+Had a lot of fun with it :) 
 
-Well, I know I definitely missed something on the Chem 43A midterm today
-
-Arrived to Peterson slightly late but it’s okay bc time wasn’t the problem
-
-I really thought DCM and chloroform were less dense than water SMH… their densities are like 1.3 and 1.4 g/mL respectively
-
-Appreciate the candy at the end btw🍬🍫. Prof a real one 4 dat 🤧 
-
---- 
-
-Being on campus on a Saturday morning is so peaceful 
-
-Also I like this new view from the other side of Geisel facing the Snake path and CS building area. The old view of the stairs and bike path was getting boring. 
-
---- 
-
-DA SHOGUN ISN’T LEAVING US. LGGGGGGGG 
-
-ALSO HE REALLY BLESSED US W/ SUM AMERICAN MIDWEST FALL FOOTAGE TOO??
-
-UMMM, OK CORY HOW DID U KNO THAT WAS MY NEW FAV AESTHETIC? I LUV IT 🧡🍁🍂
-
---- 
-
-Looks like I’ll be heading back home on a Tuesday evening since no lab on wednesday the week of thanksgiving!!! They kinda tripping with the ticket prices on Thanksgiving day though. Also don’t you think it’s so fake that on Thursday everyone is so thankful and spending time with family and then it’s Black Friday and people are fighting over TVs and it’s like dang where’d the thanksgiving spirit go I thought we were happy that our needs were met and stuff
+Ed dressed up as Samara Morgan from *The Ring* btw
 
 ---
 
-KBBQ 2nite for Bryan. Happy 20th bud! 🎂🎉 So happy that some cake was brought out for him yesterday, bc I mean, well, we would have gotten him one if they didn’t but we were having trouble deciding whether to get cake or cupcakes and then there was like the planning for the mini event. It just means so much that a small burden got removed
+Finished listening to the last few songs from *NOT ALL HEROES WEAR CAPES*. "No Complaints" goes harder than I remember maybe because I thought Drake was kinda wack back then. Nowadays I think I like certain Drake stuff like _Honestly, Nevermind_ and _Take Care_. Also Swae Lee goes crazy. Gunna and Thugger on Metro beats is kinda strange though bc I'm more used to hearing them on Wheezy/Turbo/Taurus beats to be honest. Although, on _DS4EVER_ there were definitely Metro beats like for "alotta cake" and "poochie gown"
 
 ---
 
-Ok, so we didn’t actually get KBBQ. We got Outback Steakhouse instead! 
+Casually obtained some PvZ achievements like Hypnotizing disco zombie, making the dead zombie heap go into space, beat i,zombie with at least 1000 sun left on 1st level, and Lawn Mower Man where you mow down 10 zombies with a single lawnmower (but a roof or pool cleaner also gets you the achievement)
 
-(Reminded me of 2020 summer backyard family dinner, different times...)
+oH! And new plant obtained for Zen Garden: Ice shroom ❄️🍄.
 
-I liked it but these guys really forgot the grilled shrimp bruh.
+--- 
 
----
+BEER BEER BEER BEER!!! 
 
-They didn’t have an adult Spider-Man suit. 
-
-So guess >wHAT??? 
-I decided to be aH noble n0Bl3 vAMPiR3  >  💋 instead! 🧛🏾
+BEER NYE 是科学家!🧑‍🔬🥼🧪
 
 ---
 
-Surprise visit from Gabe and Connie. Also our peers. But a pleasant surprise 
-
-Just Dance and Smash with more people is quite the spectacle.
+11 years since LIVE.LOVE.A$AP.
