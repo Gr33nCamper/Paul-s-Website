@@ -1,3 +1,3 @@
-[Nov 2022](https://github.com/R3dbAbyVamp/Paula-s-Website/Years/2022/Fall/Nov)
+[Nov 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/Nov)
 
-[Oct 2022](https://github.com/R3dbAbyVamp/Paula-s-Website/Years/2022/Fall/Oct)
+[Oct 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/Oct)
