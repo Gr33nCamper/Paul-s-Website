@@ -27,3 +27,21 @@ OH w/ Prof Brandon Seward today. It looks like I have to gain some more intuitio
 _Her Loss_ dropped! 🗡️x🦉🔥 Unfortunately, _HEROES AND VILLAINS_ got delayed for "sample clearance" and definitely not bc someone else was dropping today.
 
 Also Stop Breathing has finally made its way onto carti's top 10 popular list!!!!!! (May I humbly add that I predicted a few months ago this might one day happen due to it being the only song on WLR that was gaining streams at a considerable rate under Sky, Vamp Anthem, and ILoveUIHateU) 
+
+&nbsp;
+
+&nbsp;
+
+**Nov 08, 2022:** 
+
+Finally poured rain today! 🌧️ (not just prolonged sprinkling)
+
+Also first time getting up before 11 or 12 in a long time 
+
+--- 
+
+Went grocery shopping at Ralph's and held 2nd apt council meeting
+
+Gonna be getting sheared soon (Friday)
+
+Egg nog is awesome it's like drinking melted vanilla ice cream
