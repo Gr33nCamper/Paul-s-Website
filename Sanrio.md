@@ -2,7 +2,7 @@
 
 One yr since going to downtown SD for the carti concert...
 
-An experience I will not forget anytime soon. Especially jumping into the moshpit when "JumpOutTheHouse" came on. And when he performed "ILoveUIHateU" bro and I heard the Narcissist intro on guitar and the booming bass you could physically feel and other people chanting the lyrics and moshing.. I remember so many scenes from my past ran through my mind at that moment.
+An experience I will not forget anytime soon. Especially jumping into the moshpit when "JumpOutTheHouse" came on. And when he performed "ILoveUIHateU" bro and I heard the Narcissist intro on guitar and the booming bass you could physically feel resounding in your chest and like the back of your neck and other people chanting the lyrics and moshing and how it was dark and there were the lights and smoke machines... (oh yeah but some people were puffing blunts which kinda ruined the vibe bc I really hate the smell and also the Travis Scott Astrofest incident had just happened so I wasn't trying to go TOO crazy) I remember so many scenes from my past ran through my mind at that moment.
 
 Thinking back to the first time I heard it.
 
