@@ -1,5 +1,3 @@
-# Paula's Website
-
 hEY yALL, it's ya GURL Paula WUUUUUUUUU !! 😝💕🐮🤭
 
 hERe is whERE i log my adventures, random thoughts, share pics, and comment on things 
