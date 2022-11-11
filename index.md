@@ -2,4 +2,4 @@
 
 [Archive](https://r3dbabyvamp.github.io/Paula-s-Website/Archive)
 
-[README](https://r3dbabyvamp.github.io/Paula-s-Website/README)
+[Read Meh!](https://r3dbabyvamp.github.io/Paula-s-Website/ReadMeh!)
