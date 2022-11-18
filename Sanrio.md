@@ -1,29 +1,20 @@
-**Nov 14, 2022:**
+**Nov 17, 2022:**
 
-Seeing the sun is something to enjoy especially during this time of year bc of how soon the sun sets. Lucky for me, I was able to get up and hop on the bus earlier than usual today. First time going to in-person lectures for math since like last month. And that was bc of midterms. Room was emptier, less people waiting at the bus stop. But inside the bus was still kinda packed. Smh
+Two yrs since PxBP Deluxe, the last project Mr. Vert and Future released in 2020..
 
----
-
-OH again w/ Prof Brandon Seward. This time, got some clarification on what it means for subsequential limits to be different, checked whether the YouTube definition of limsup was legit, and then asked about research and how he came to know what he wanted to do. His research involves dynamic systems and probabilities, which relates to ergodic theory. Said he enjoyed solving puzzles when he was younger, so he already knew back in high school that he wanted to pursue a career in mathematics. As an undergrad, he was working with a professor on a problem involving this kind of math, so later on in grad school he took classes on ergodic theory and found out he enjoyed it.  
+One week before Thanksgiving, at most four days before flying back
 
 ---
 
-TAs going on strike today, so ochem lab cancelled for this week. Although I like ochem lab, I also think this is a good break. And that gave me more time to learn MATH 140A material.
+"November come, won't you pop out at the fest (It's lit)" 
+-Travis Scott "Diamonds Dancing" from SL2 (Apr 16, 2021)
 
----
+Ofc Mr. Webster!!! Surely I won't get trampled and die in a moshpit right? 😃👍 
 
-Guess who I saw on campus today? 
+I mean, the party NEVER ends amirite? After all, it's not a moshpit if there are no injuries!
 
-Bryan, Tobi, Kevin, and Sauol (if that's how you spell it)
+--- 
+Me last year after the Astrofest incident: 
 
-People in Geisel 1st floor are a little too loud for my taste. And did you see the dudes dapping up everybody at the table?  
+Travis talm bout "ESCAPE PLAN", homie U need an "escape plan" from all those lawsuits coming your way 💀
 
-I'm like bruh, let me learn about sequences and summation by parts in peace go somewhere else. ANYWHERE ELSE. PLS 
-
----
-
-Finished some leftovers in the fridge
-
----
-
-jigsaw puzzle 🧩 > so much fUN
