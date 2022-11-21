@@ -248,7 +248,7 @@ Played around with a 2x2 Rubik's cube using the aga^-1 inner automorphism we lea
 
 &nbsp;
 
-Nov 19, 2022:
+**Nov 19, 2022:**
 
 Brian Lin paid us a surprise visit
 
