@@ -207,3 +207,71 @@ Thai tea is my new fav tea 🫖
 ---
 
 How did it get so cold outside, it's only like mid-Nov
+
+&nbsp;
+
+&nbsp;
+
+**Nov 17, 2022:**
+
+Two yrs since PxBP Deluxe, the last project Mr. Vert and Future released in 2020..
+
+One week before Thanksgiving, at most four days before flying back
+
+---
+
+"November come, won't you pop out at the fest (It's lit)" 
+-Travis Scott "Diamonds Dancing" from SL2 (Apr 16, 2021)
+
+Ofc Mr. Webster!!! Surely I won't get trampled and die in a moshpit right?? 😃👍 
+
+I mean, the party NEVER ends as Juice WLRD says on "NO BYSTANDERS"! After all, it's not a moshpit if there are no injuries!
+
+--- 
+Me last year after the Astrofest incident: 
+
+Travis talm bout "ESCAPE PLAN", homie U need an "escape plan" from all those lawsuits coming your way 💀
+
+&nbsp;
+
+&nbsp;
+
+**Nov 18, 2022:**
+
+Missed Math 103A second midterm. Well, looks like the final gonna be worth a lot more then 🙃 
+
+I didn't know pies develop flavor during the cooling process. 
+
+Played around with a 2x2 Rubik's cube using the aga^-1 inner automorphism we learned about in 103A
+
+&nbsp;
+
+&nbsp;
+
+Nov 19, 2022:
+
+Brian Lin paid us a surprise visit
+
+Sent Mr. Garcia an email! Also drafted an email to Prof. Francesco Paesani
+
+Remember the snickerdoodle cookies we bought back in spring break??? 
+
+WE FINALLY BAKED THEM!!! LET'S GOOOOOO 😭😭
+
+&nbsp;
+
+&nbsp;
+
+**Nov 20, 2022:**
+
+picnic > was ah success! No leftover flan or snickerdoodle cookies
+
+ALSO guess what? 🚨 MATH 140A HW 7 FINISHED!!!!! 🚨 *HOLD UP* WEE OOH WEE OOH
+
+First complete HW for 140A, can U believe it?? 
+
+But in terms of actual understanding, I need to do more work bc a lot of it was based on xperience from working on problems w/ series back in Calc BC. We got some old experience, but now we need to build on it with some new experience
+
+&nbsp;
+
+&nbsp;
