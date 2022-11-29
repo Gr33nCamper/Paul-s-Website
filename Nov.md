@@ -276,6 +276,20 @@ But in terms of actual understanding, I need to do more work bc a lot of it was 
 
 &nbsp;
 
+**Nov 21, 2022:**
+
+🛫 SD, 🛬 SJ
+
+--- 
+
+This foo almost dipped on me bRuh, smH.
+
+I like the fall foliage here who said Fremont only has evergreen trees
+
+&nbsp;
+
+&nbsp;
+
 **Nov 24, 2022:**
 
 ROAST DUCK, BAKED TROUT, SEAFOOD SPAGHETTI
@@ -287,11 +301,11 @@ HAPPY THANKSGIVING, WE DON'T EAT TURKEY
 
 ---
 
-POV: This mf walks on your lawn 💀
+POV: You step outside and see this mf walk on your lawn 
 
+#RepeaterHisAhhTFOuttaHere  
 
 <a href="https://ibb.co/Yc49s9C"><img src="https://i.ibb.co/y6mTjT9/IMG-2432.jpg" alt="IMG-2432" width="320" height="450" border="0"></a>
-
 
 &nbsp;
 
