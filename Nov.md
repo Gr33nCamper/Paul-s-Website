@@ -256,7 +256,7 @@ Sent Mr. Garcia an email! Also drafted an email to Prof. Francesco Paesani
 
 Remember the snickerdoodle cookies we bought back in spring break??? 
 
-WE FINALLY BAKED THEM!!! LET'S GOOOOOO 😭😭
+WE FINALLY BAKED THEM 😭😭
 
 &nbsp;
 
@@ -271,6 +271,27 @@ ALSO guess what? 🚨 MATH 140A HW 7 FINISHED!!!!! 🚨 *HOLD UP* WEE OOH WEE OO
 First complete HW for 140A, can U believe it?? 
 
 But in terms of actual understanding, I need to do more work bc a lot of it was based on xperience from working on problems w/ series back in Calc BC. We got some old experience, but now we need to build on it with some new experience
+
+&nbsp;
+
+&nbsp;
+
+**Nov 24, 2022:**
+
+ROAST DUCK, BAKED TROUT, SEAFOOD SPAGHETTI
+
+HAPPY THANKSGIVING, WE DON'T EAT TURKEY
+
+<a href="https://ibb.co/vBHZDJJ"><img src="https://i.ibb.co/RS9z7CC/IMG-2430.jpg" alt="IMG-2430" width="500" height="350" border="0"></a>
+<a href="https://ibb.co/XbmzpGx"><img src="https://i.ibb.co/yXL85xF/IMG-5018-2.jpg" alt="IMG-5018-2" width="500" height="350" border="0"></a>
+
+---
+
+POV: This mf walks on your lawn 💀
+
+
+<a href="https://ibb.co/Yc49s9C"><img src="https://i.ibb.co/y6mTjT9/IMG-2432.jpg" alt="IMG-2432" width="320" height="450" border="0"></a>
+
 
 &nbsp;
 
