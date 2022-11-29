@@ -296,8 +296,8 @@ ROAST DUCK, BAKED TROUT, SEAFOOD SPAGHETTI
 
 HAPPY THANKSGIVING, WE DON'T EAT TURKEY
 
-<a href="https://ibb.co/vBHZDJJ"><img src="https://i.ibb.co/RS9z7CC/IMG-2430.jpg" alt="IMG-2430" width="500" height="350" border="0"></a>
-<a href="https://ibb.co/XbmzpGx"><img src="https://i.ibb.co/yXL85xF/IMG-5018-2.jpg" alt="IMG-5018-2" width="500" height="350" border="0"></a>
+<a href="https://ibb.co/vBHZDJJ"><img src="https://i.ibb.co/RS9z7CC/IMG-2430.jpg" alt="IMG-2430" width="490" height="330" border="0"></a>
+<a href="https://ibb.co/XbmzpGx"><img src="https://i.ibb.co/yXL85xF/IMG-5018-2.jpg" alt="IMG-5018-2" width="490" height="330" border="0"></a>
 
 ---
 
