@@ -304,9 +304,22 @@ HAPPY THANKSGIVING, WE DON'T EAT TURKEY
 POV: You step outside and see this mf walk on your lawn 
 
 #RepeaterHisAhhTFOuttaHere  
-
 <a href="https://ibb.co/Yc49s9C"><img src="https://i.ibb.co/y6mTjT9/IMG-2432.jpg" alt="IMG-2432" width="320" height="450" border="0"></a>
 
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 29, 2022:**
+
+One more time 
+
+Last time returning to SD for 2022
