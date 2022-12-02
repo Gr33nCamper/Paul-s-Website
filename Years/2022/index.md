@@ -1,4 +1,4 @@
-[Winter: Dec 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Dec2022)
+[Winter: Dec 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Dec)
 
 [Fall 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/index)
 
