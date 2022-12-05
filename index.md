@@ -4,12 +4,4 @@
 
 [Dec 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Dec22)
 
-&nbsp;
-
-&nbsp;
-
-[Read Meh!](https://r3dbabyvamp.github.io/Paula-s-Website/Extras/ReadMeh!)
-
-[OF Link 🤫😘](https://boulderbugle.com/paulas-onlyfans-bsquzyzr)
-
-
+[Extras](https://r3dbabyvamp.github.io/Paula-s-Website/Extras/index)
