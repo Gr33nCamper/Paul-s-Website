@@ -92,6 +92,8 @@ I liked the Ube cookie. Bacon QPC was alright but some lettuce would have helped
 
 **Dec 07, 2022:**
 
+Pleasantly surprised to run into Audria today. I told her about getting a white elephant gift and also how we wanted to decorate a lamp 
+
 R.I.P. Fenrir bruh 🐺🪦
 
 Evil unnamed former roommate be like: I don’t disturb my roomie’s sleep at night and we spend quality time together. We share each other’s happiness and pain and accept each other for who we are without judgment 
@@ -107,3 +109,11 @@ Evil unnamed former female giftshop co-staffer be like: I reply to texts from pe
 Bought a lil gift for White Elephant with a personal touch to it 😉. T’is the season of giving   
 
 World Market got us covered. It’s got some exclusive stuff you wouldn’t be able to get at any ol’ Target or Walmart. But I shouldn’t assume everyone else’s gift is gonna be generic af, bc who knows? Someone else might have a more fire gift
+
+--- 
+
+Thinking back more, I think my proofs on the final could definitely use more precise terms because it didn't make use of a lot of symbols. 
+
+Now words can get their meanings twisted but you can't exactly misinterpret A ⋂ B = ∅ right? Also it gets a little verbose writing out the whole definition. If a guy told me, well by this definition, this follows and you can see that the complement is open so now we have that the original set was closed but didn't give any specific example of the arbitrary points he used or what set he constructed, I wouldn't be so convinced. 
+
+Perhaps I assume too much knowledge from the graders, which obviously they have but ofc the purpose isn't just to get the answer right but to convince others (and yourself) why it must be true
