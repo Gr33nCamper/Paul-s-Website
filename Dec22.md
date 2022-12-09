@@ -38,3 +38,68 @@ I’m convinced that starting from 2018, a notable fire record or track always d
 4. _Yo!88_								(Dec 10, 2021)
 5. _HEROES AND VILLAINS_ 				(Dec 02, 2022)  
 
+&nbsp;
+
+&nbsp;
+
+**Dec 03, 2022:**
+
+Won my first Monopoly game 🎩💰
+
+Also I finally learned what a double is (roll a pair of the same number with dice)
+
+&nbsp;
+
+&nbsp;
+
+**Dec 04, 2022:**
+
+For problem 6 on the practice final I was like, if b = min(𝛿, ε/2) how do you know for sure that d(x, p) < b => d(x,p) < ε/2??? 
+
+But then it hit me
+
+Case 1 : 𝛿 > ε/2. Then b = ε/2 and it is obvious that d(x,p) < ε/2  
+
+Case 2 : 𝛿 ≤ ε/2. Then b =  𝛿 and d(x,p) < 𝛿 < ε/2 
+
+&nbsp;
+
+&nbsp;
+
+**Dec 05, 2022:**
+
+You know what, we just do it. I can’t fall for those same tricks again. You already know what’s gonna happen if you give in, so don’t do it. 
+
+Dark Ages PvZ2 goes crazy also sunshrooms are kinda op 
+
+New food unlocked: Breakfast onigiri 🍙🥓🍳!!!! Also tested out the compact giant fan, it works quite well
+
+&nbsp;
+
+&nbsp;
+
+**Dec 06, 2022:**
+
+I liked the Ube cookie. Bacon QPC was alright but some lettuce would have helped
+
+&nbsp;
+
+&nbsp;
+
+**Dec 07, 2022:**
+
+R.I.P. Fenrir bruh 🐺🪦
+
+Evil unnamed former roommate be like: I don’t disturb my roomie’s sleep at night and we spend quality time together. We share each other’s happiness and pain and accept each other for who we are without judgment 
+
+Evil unnamed former female giftshop co-staffer be like: I reply to texts from people I used to know.  In addition, I don’t erroneously assume others are pathetic, clingy losers just bc they’re messaging me when they could be messaging others closer to them. Also I keep my promise to take people to 7Leaves 
+
+&nbsp;
+
+&nbsp;
+
+**Dec 08, 2022:**
+
+Bought a lil gift for White Elephant with a personal touch to it 😉. T’is the season of giving   
+
+World Market got us covered. It’s got some exclusive stuff you wouldn’t be able to get at any ol’ Target or Walmart. But I shouldn’t assume everyone else’s gift is gonna be generic af, bc who knows? Someone else might have a more fire gift
