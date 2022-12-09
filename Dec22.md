@@ -38,13 +38,17 @@ I’m convinced that starting from 2018, a notable fire record or track always d
 4. _Yo!88_								(Dec 10, 2021)
 5. _HEROES AND VILLAINS_ 				(Dec 02, 2022)  
 
+---
+
+I guess this is the end of instruction for FA22 🙃
+
 &nbsp;
 
 &nbsp;
 
 **Dec 03, 2022:**
 
-Won my first Monopoly game 🎩💰
+Won my first Monopoly game! 🎩💰
 
 Also I finally learned what a double is (roll a pair of the same number with dice)
 
