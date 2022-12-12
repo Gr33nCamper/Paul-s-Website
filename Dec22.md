@@ -124,11 +124,62 @@ Perhaps I assume too much knowledge from the graders, which obviously they have 
 
 **Dec 09, 2022:** 
 
+Started off leaping out of bed to take the 103A final. 
+
+Pleasantly surprised it was super similar to the practice final and also the correct answer gets full points policy (with correct work giving partial credit). Also no proofs
+
+---
+
+Before the year ended, I had to try Main Chick Supreme spice 🔥🔥🔥🔥🔥 
+
+So the thing is
+
+It wasn't lethal, but it did hurt like hekkkkkkkkkk
+
+Like you had to gargle/ rinse your mouth with milk, if you just sipped it, the heat would just flare up again
+
+Insulating with starch proved pretty effective. Also coating the chicken with a bunch of sauce
+
+---
+
+🫡 FA22 over. We outta here
+
+I think this year alone I’ve flown more times than in elementary, middle school, and high school combined
+
+---
+
+Pulled up to Tristan's house and gave him some of the chicken to try
+
+Ed also tried some of the spicy supreme and he was burning up 
+
 &nbsp;
 
 &nbsp; 
 
-**Dec 10, 2022:** 
+
+**Dec 10, 2022:**
+
+In Wii Play Tanks, Ed and I beat all 20 missions in one take. 4 DA 1$T TIME EVR. 
+
+We done came a long way bruh...mission accomplished 🪖🫡 
+
+---
+
+Turns out the Wii shop channel closed down. And Internet and Netflix channesl don't work
+
+--- 
+
+Driving in the rain at night is a new vibe 🚗🌧️
+
+---
+
+Went to Lake Elizabeth for a small jog but it was kinda wet outside
+
+Also pulled a Walter White in Raley's 
+
+--- 
+
+Blew up the zombie kings in Pvz2 with cherry bombs 🍒💣. LGGGGGGGGGG #RestInPissBozo #ChiefingThatKingPack #FkTheKing #PulledUpToMyOppsFuneralJustToMakeSureThatN*bbaDead
 
 &nbsp;
 
@@ -136,14 +187,64 @@ Perhaps I assume too much knowledge from the graders, which obviously they have 
 
 **Dec 11, 2022:**
 
+I was acting ah fool in da mirror again! 🙃.....✌️😝💕 
+
+&nbsp;
+
+Me when I see that I didn't absolutely fail a class I thought I did horribly in 
+
+<a href="https://ibb.co/6W8BHJ5"><img src="https://i.ibb.co/JsqQvFP/IMG-2474.jpg" alt="IMG-2474" border="0" width="400" height="550">
+---
+
+Nick the Greek had very speedy service, and I think it's the best Gyro I've had so far. 
+
+Way better than Santorini Greek Grill that's for sure
+
+--- 
+
+New aesthetic for Jenny Argento: Pirate captain!! 🏴‍☠️⚓️🦜 
+
+<a href="https://ibb.co/B62kYqM"><img src="https://i.ibb.co/c8hqsDn/IMG-2478.jpg" alt="IMG-2478" border="0" width="400" height="550">
+
+
+---
+
+Okay but why this pic go kinda hard tho 😭
+  
+<a href="https://ibb.co/tq8qwB2"><img src="https://i.ibb.co/wSMSZyQ/IMG-2485.jpg" alt="IMG-2485" border="0" width="400" height="550">
+
+---
+  
+Went to a park near Union City Library. We saw some geese and a black squirrel. Library was closed
+
+---
+
+Celebrated Bradly's birthday at his dad's house in Hayward. Apparently his dad's name is also Paul
+
+We picked up some Filipino food beforehand but the customer service wasn't really the best. They initially gave us a whole box of rice even though we didn't ask for that. 
+
+Watched Bullet Train later and it was awesome, to be honest, I wasn't sure that movies were still good these days. Meanwhile, I don't think Marvel has missed yet with the run of Shang Chi, No Way Home, Dr. Strange, and then Wakanda Forever
+
+---
+
 Went lifting today at City Sports club 
 
 Felt very refreshing afterwards, and breathing in the night air after exercising and relieving stress 
 
-People gonna say this and that but I'm not rushing the 
+People gonna say this and that but I'm not rushing the process of getting more fit. It's not just for looks, I mean, I know some people only do it for physique but like if you're not gonna use it, it's not really worth it imo. I don't ever want to be like "Hey everybody watch this! I can lift this much!" but just as a party trick. Come on man, I didn't spend time and money just to impress strangers. What is that worth a few months later? Nothing. At the end of the day, you should do it for yourself but more importantly for the Lord, not empty praise
+
+This guy won't shut up about it huh? 
+
+gO tO tHe gyM wItH mE. gO tO tHe gyM wItH mE. gO tO tHe gyM wItH mE. 
+
+Ok. I went with you 
+
+Now quit bugging me and do some sht on your own
+
+Why some people feel the need to stunt on others like that I will never understand. If you need to prove you're better than me, doesn't that mean it's not self-evident? You think you're showing your strength but really all I see your biggest insecurities. Isn't that something we learned from one of the messages? What we show off to others is often closely related to what we feel most insecure about? The wealthy man shows off his possessions and money in the hopes that he'll get other people to respect him and see him as worthy of praise. Call him what you want, but you can't call him poor, right? The intelligent man shows off his intelligence because he doesn't want to be seen as dumb or uneducated. The strong man shows off his physique and fitness because he doesn't want to appear weak. The popular guy brags about followers or friends or likes on their posts, because they don't want to appear irrelevant or unloved. In whatever way they can, people try to prove their worth to others, but it never really works because someone will always be more skilled than them in their area. So only if our identitiy is in Christ will it truly be unshakable
+
+We shouldn't be content with mediocrity, but at the same time, the purpose of doing better shouldn't be to prove your worth to others. In its purest form, if you want to improve yourself, you would do it to compete with yourself, using your previous self as a metric, which is in my opinion really the best standard there is for measuring your abilities, that is. You shouldn't use yourself as a standard for right and wrong, since everyone is biased towards themselves. You might excuse yourself for something other people would disapprove of and you might disapprove of something a lot of other people seem to approve of. Only God is impartial and always correct in saying what's right and wrong 
 
 &nbsp;
 
 &nbsp; 
-
-
