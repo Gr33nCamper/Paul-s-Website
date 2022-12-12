@@ -185,6 +185,7 @@ Blew up the zombie kings in Pvz2 with cherry bombs 🍒💣. LGGGGGGGGGG #RestIn
 
 &nbsp; 
 
+
 **Dec 11, 2022:**
 
 I was acting ah fool in da mirror again! 🙃.....✌️😝💕 
@@ -194,6 +195,7 @@ I was acting ah fool in da mirror again! 🙃.....✌️😝💕
 Me when I see that I didn't absolutely fail a class I thought I did horribly in 
 
 <a href="https://ibb.co/6W8BHJ5"><img src="https://i.ibb.co/JsqQvFP/IMG-2474.jpg" alt="IMG-2474" border="0" width="400" height="550">
+  
 ---
 
 Nick the Greek had very speedy service, and I think it's the best Gyro I've had so far. 
@@ -202,10 +204,9 @@ Way better than Santorini Greek Grill that's for sure
 
 --- 
 
-New aesthetic for Jenny Argento: Pirate captain!! 🏴‍☠️⚓️🦜 
+New aesthetic for Jenny Argento: Pirate captain!! 🏴‍☠️⚓️🦜
 
-<a href="https://ibb.co/B62kYqM"><img src="https://i.ibb.co/c8hqsDn/IMG-2478.jpg" alt="IMG-2478" border="0" width="400" height="550">
-
+<a href="https://ibb.co/B62kYqM"><img src="https://i.ibb.co/c8hqsDn/IMG-2478.jpg" alt="IMG-2478" border="0" width="400" height="550"> 
 
 ---
 
@@ -215,15 +216,18 @@ Okay but why this pic go kinda hard tho 😭
 
 ---
   
-Went to a park near Union City Library. We saw some geese and a black squirrel. Library was closed
-
+Park near Union City Library. Saw some geese and a black squirrel. Library was closed.
+  
+Loving the colors on the trees, very beautiful
+  
+<a href="https://postimg.cc/3dHB0WcG"><img src="https://i.postimg.cc/L6J071kx/IMG-2487.jpg" width="560" height="440">
+  
 ---
-
 Celebrated Bradly's birthday at his dad's house in Hayward. Apparently his dad's name is also Paul
 
 We picked up some Filipino food beforehand but the customer service wasn't really the best. They initially gave us a whole box of rice even though we didn't ask for that. 
 
-Watched Bullet Train later and it was awesome, to be honest, I wasn't sure that movies were still good these days. Meanwhile, I don't think Marvel has missed yet with the run of Shang Chi, No Way Home, Dr. Strange, and then Wakanda Forever
+Watched _Bullet Train_ later and it was awesome, to be honest, I wasn't sure that movies were still good these days. Meanwhile, I don't think Marvel has missed yet with the run of Shang Chi, No Way Home, Dr. Strange, and then Wakanda Forever
 
 ---
 
@@ -244,7 +248,3 @@ Now quit bugging me and do some sht on your own
 Why some people feel the need to stunt on others like that I will never understand. If you need to prove you're better than me, doesn't that mean it's not self-evident? You think you're showing your strength but really all I see your biggest insecurities. Isn't that something we learned from one of the messages? What we show off to others is often closely related to what we feel most insecure about? The wealthy man shows off his possessions and money in the hopes that he'll get other people to respect him and see him as worthy of praise. Call him what you want, but you can't call him poor, right? The intelligent man shows off his intelligence because he doesn't want to be seen as dumb or uneducated. The strong man shows off his physique and fitness because he doesn't want to appear weak. The popular guy brags about followers or friends or likes on their posts, because they don't want to appear irrelevant or unloved. In whatever way they can, people try to prove their worth to others, but it never really works because someone will always be more skilled than them in their area. So only if our identitiy is in Christ will it truly be unshakable
 
 We shouldn't be content with mediocrity, but at the same time, the purpose of doing better shouldn't be to prove your worth to others. In its purest form, if you want to improve yourself, you would do it to compete with yourself, using your previous self as a metric, which is in my opinion really the best standard there is for measuring your abilities, that is. You shouldn't use yourself as a standard for right and wrong, since everyone is biased towards themselves. You might excuse yourself for something other people would disapprove of and you might disapprove of something a lot of other people seem to approve of. Only God is impartial and always correct in saying what's right and wrong 
-
-&nbsp;
-
-&nbsp; 
