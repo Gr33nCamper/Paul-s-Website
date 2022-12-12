@@ -117,3 +117,33 @@ Thinking back more, I think my proofs on the final could definitely use more pre
 Now words can get their meanings twisted but you can't exactly misinterpret A ⋂ B = ∅ right? Also it gets a little verbose writing out the whole definition. If a guy told me, well by this definition, this follows and you can see that the complement is open so now we have that the original set was closed but didn't give any specific example of the arbitrary points he used or what set he constructed, I wouldn't be so convinced. 
 
 Perhaps I assume too much knowledge from the graders, which obviously they have but ofc the purpose isn't just to get the answer right but to convince others (and yourself) why it must be true
+
+&nbsp;
+
+&nbsp; 
+
+**Dec 09, 2022:** 
+
+&nbsp;
+
+&nbsp; 
+
+**Dec 10, 2022:** 
+
+&nbsp;
+
+&nbsp; 
+
+**Dec 11, 2022:**
+
+Went lifting today at City Sports club 
+
+Felt very refreshing afterwards, and breathing in the night air after exercising and relieving stress 
+
+People gonna say this and that but I'm not rushing the 
+
+&nbsp;
+
+&nbsp; 
+
+
