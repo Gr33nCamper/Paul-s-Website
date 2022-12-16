@@ -248,3 +248,90 @@ Now quit bugging me and do some sht on your own
 Why some people feel the need to stunt on others like that I will never understand. If you need to prove you're better than me, doesn't that mean it's not self-evident? You think you're showing your strength but really all I see your biggest insecurities. Isn't that something we learned from one of the messages? What we show off to others is often closely related to what we feel most insecure about? The wealthy man shows off his possessions and money in the hopes that he'll get other people to respect him and see him as worthy of praise. Call him what you want, but you can't call him poor, right? The intelligent man shows off his intelligence because he doesn't want to be seen as dumb or uneducated. The strong man shows off his physique and fitness because he doesn't want to appear weak. The popular guy brags about followers or friends or likes on their posts, because they don't want to appear irrelevant or unloved. In whatever way they can, people try to prove their worth to others, but it never really works because someone will always be more skilled than them in their area. So only if our identitiy is in Christ will it truly be unshakable
 
 We shouldn't be content with mediocrity, but at the same time, the purpose of doing better shouldn't be to prove your worth to others. In its purest form, if you want to improve yourself, you would do it to compete with yourself, using your previous self as a metric, which is in my opinion really the best standard there is for measuring your abilities, that is. You shouldn't use yourself as a standard for right and wrong, since everyone is biased towards themselves. You might excuse yourself for something other people would disapprove of and you might disapprove of something a lot of other people seem to approve of. Only God is impartial and always correct in saying what's right and wrong 
+
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 12, 2022:** 
+  
+Frog-Quaeda a yr ago 🐸 
+
+--- 
+
+GOT DA LETTER FROM FUTURE ME THAT I WROTE BACK IN MAY. I LUV IT!! 🤧
+  
+---
+  
+Winter night-time jog around Quarry Lakes is awesome, you don't even sweat that much and it's not cold as long as you keep moving at a reasonably swift pace 
+  
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 13, 2022:** 
+  
+Made pretty good use of guest pass last day, in my humble opinion
+  
+Focused more on legs, but still did some upper body work
+
+Swimming was quite fun and I was hungry af afterwards
+
+Turns out my technique for swimming was a little rusty. Freestyle you're supposed to keep ur body as straight as possible and make small rapid kicks every 1-1.5 seconds or so. And for breast stroke your legs and arms aren't supposed to go at the same time.
+
+---
+  
+We thought we were gonna get In-N-Out, but the Drive-Thru was super long. 
+
+So we went to TGI Fridays instead. It was pretty good but the wings were super small and I thought the portion sizes could be larger. Ended up coming back home around midnight
+  
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 14, 2022:** 
+
+Misis strikes again, we'll need to mount a winter offensive
+  
+Made the tomato egg stir-fry for the first time in a long time
+  
+Called Jack today, lookz like he trying out some Sichuan dialect
+  
+Messaged some people from my past 
+  
+Dropped something in the group chat but highly doubt people gonna link up, if I learned anything from last time it's that everyone wants to link up but nobody wants to be the one to plan it which is dumb bc if u don't plan it how tf u gonna meet up? Random chance????
+  
+Also what's up with people acting too cool for sht and trying to get clout off others that sht corny as hell. Can't we just talk to each other human to human, putting our pride aside?
+
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 15, 2022:** 
+  
+For some reason, I was up at around 6a and couldn't fall back asleep 
+  
+Went to Vargas Plateau, saw coyote and quail 
+
+drove to MegaMart 
+  
+then Union City 
+ 
+then walked around Lake Elizabeth
+  
+dropped Ed off, then went back home 
+  
+--- 
+  
+Driving at night listening to _Die Lit_ is a chill ahh vibe
+  
+--- 
+  
+Pushing 🅿️?? Nah fam he pushing PTSD 🤣
+  
+--- 
+  
+Got some candy canes for the tree and Crisp Kringle for Jack 
+  
+Also Mighty Mango Naked, I've found I like the thicker Naked drinks bc if it's too watery, then it doesn't feel like I'm drinking something richly filling
+ 
