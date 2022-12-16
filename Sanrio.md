@@ -1,7 +1,9 @@
-**Dec 12, 2022:**
+**Dec 16, 2022:**
 
-Frog-Quaeda a yr ago 🐸 
+AVATAR: WAY OF WATER DAY!!!!!! HOLD UP, R U GUYS GETTING THIS???? 
 
---- 
+🚨🚨🚨🚨🚨 BREAKING NEWS WEE OOH WEE OOH !!! CLASSIC INCOMING !! WE NOT READY
 
-GOT DA LETTER FROM FUTURE ME THAT I WROTE BACK IN MAY. I LUV IT!! 🤧
+---
+
+We finessing 24Hr Fitness this time
