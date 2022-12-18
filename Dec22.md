@@ -353,3 +353,7 @@ Ok so we didn't actually finesse 24Hr Fitness...yet
 --- 
 
 Surprised that Wesley and I were able to have a conversation over Messenger so easily bc it's been a while since we last talked to one another. I enjoyed hearing about what was going on with the UC-wide grad student strike over at UC Santa Cruz. He said that the strikers are kinda asking for more than they deserve which is acting entitled. And if they really want affordable housing, they have to seek it out early and aggressivley. He claims even if the pay isn't that good, it's still enough to live on. They won't be able to buy luxuries, but necessities can definitely be covered
+  
+--- 
+  
+You wouldn't believe it, but the Google Form method actually worked! We narrowed it down to Wednesday evening between 6 and 9p. So in fact, the planning did go somewhere 
