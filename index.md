@@ -1,4 +1,4 @@
-[Current (Dec 16)](https://r3dbabyvamp.github.io/Paula-s-Website/Sanrio)
+[Current (Dec 17)](https://r3dbabyvamp.github.io/Paula-s-Website/Sanrio)
 
 [Archive](https://r3dbabyvamp.github.io/Paula-s-Website/Extras/Archive)
 
