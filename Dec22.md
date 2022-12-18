@@ -215,29 +215,30 @@ Okay but why this pic go kinda hard tho 😭
 <a href="https://ibb.co/tq8qwB2"><img src="https://i.ibb.co/wSMSZyQ/IMG-2485.jpg" alt="IMG-2485" border="0" width="400" height="550">
 
 ---
-  
+
 Park near Union City Library. Saw some geese and a black squirrel. Library was closed.
-  
+
 Loving the colors on the trees, very beautiful
-  
+
 <a href="https://postimg.cc/3dHB0WcG"><img src="https://i.postimg.cc/L6J071kx/IMG-2487.jpg" width="560" height="440">
-  
+
 ---
+  
 Celebrated Bradly's birthday at his dad's house in Hayward. Apparently his dad's name is also Paul
 
-We picked up some Filipino food beforehand but the customer service wasn't really the best. They initially gave us a whole box of rice even though we didn't ask for that. 
+We picked up some Filipino food beforehand but the customer service wasn't really the best. They initially gave us a whole box of rice even though we didn't ask for that.
 
 Watched _Bullet Train_ later and it was awesome, to be honest, I wasn't sure that movies were still good these days. Meanwhile, I don't think Marvel has missed yet with the run of Shang Chi, No Way Home, Dr. Strange, and then Wakanda Forever
 
 ---
 
-Went lifting today at City Sports club 
+Went lifting today at City Sports club
 
-Felt very refreshing afterwards, and breathing in the night air after exercising and relieving stress 
+Felt very refreshing afterwards, and breathing in the night air after exercising and relieving stress
 
 People gonna say this and that but I'm not rushing the process of getting more fit. It's not just for looks, I mean, I know some people only do it for physique but like if you're not gonna use it, it's not really worth it imo. I don't ever want to be like "Hey everybody watch this! I can lift this much!" but just as a party trick. Come on man, I didn't spend time and money just to impress strangers. What is that worth a few months later? Nothing. At the end of the day, you should do it for yourself but more importantly for the Lord, not empty praise
 
-This guy won't shut up about it huh? 
+This guy won't shut up about it huh?
 
 gO tO tHe gyM wItH mE. gO tO tHe gyM wItH mE. gO tO tHe gyM wItH mE. 
 
@@ -247,10 +248,10 @@ Now quit bugging me and do some sht on your own
 
 Why some people feel the need to stunt on others like that I will never understand. If you need to prove you're better than me, doesn't that mean it's not self-evident? You think you're showing your strength but really all I see your biggest insecurities. Isn't that something we learned from one of the messages? What we show off to others is often closely related to what we feel most insecure about? The wealthy man shows off his possessions and money in the hopes that he'll get other people to respect him and see him as worthy of praise. Call him what you want, but you can't call him poor, right? The intelligent man shows off his intelligence because he doesn't want to be seen as dumb or uneducated. The strong man shows off his physique and fitness because he doesn't want to appear weak. The popular guy brags about followers or friends or likes on their posts, because they don't want to appear irrelevant or unloved. In whatever way they can, people try to prove their worth to others, but it never really works because someone will always be more skilled than them in their area. So only if our identitiy is in Christ will it truly be unshakable
 
-We shouldn't be content with mediocrity, but at the same time, the purpose of doing better shouldn't be to prove your worth to others. In its purest form, if you want to improve yourself, you would do it to compete with yourself, using your previous self as a metric, which is in my opinion really the best standard there is for measuring your abilities, that is. You shouldn't use yourself as a standard for right and wrong, since everyone is biased towards themselves. You might excuse yourself for something other people would disapprove of and you might disapprove of something a lot of other people seem to approve of. Only God is impartial and always correct in saying what's right and wrong 
+We shouldn't be content with mediocrity, but at the same time, the purpose of doing better shouldn't be to prove your worth to others. In its purest form, if you want to improve yourself, you would do it to compete with yourself, using your previous self as a metric, which is in my opinion really the best standard there is for measuring your abilities, that is. You shouldn't use yourself as a standard for right and wrong, since everyone is biased towards themselves. You might excuse yourself for something other people would disapprove of and you might disapprove of something a lot of other people seem to approve of. Only God is impartial and always correct in saying what's right and wrong
 
-&nbsp; 
-  
+&nbsp;
+ 
 &nbsp;
   
 **Dec 12, 2022:** 
@@ -334,4 +335,21 @@ Pushing 🅿️?? Nah fam he pushing PTSD 🤣
 Got some candy canes for the tree and Crisp Kringle for Jack 
   
 Also Mighty Mango Naked, I've found I like the thicker Naked drinks bc if it's too watery, then it doesn't feel like I'm drinking something richly filling
- 
+  
+&nbsp;
+
+&nbsp;
+
+**Dec 16, 2022:**
+
+AVATAR: WAY OF WATER DAY!!!!!! HOLD UP, R U GUYS GETTING THIS???? 
+
+🚨🚨🚨🚨🚨 BREAKING NEWS WEE OOH WEE OOH !!! CLASSIC INCOMING !! WE NOT READY
+
+---
+
+Ok so we didn't actually finesse 24Hr Fitness...yet
+
+--- 
+
+Surprised that Wesley and I were able to have a conversation over Messenger so easily bc it's been a while since we last talked to one another. I enjoyed hearing about what was going on with the UC-wide grad student strike over at UC Santa Cruz. He said that the strikers are kinda asking for more than they deserve which is acting entitled. And if they really want affordable housing, they have to seek it out early and aggressivley. He claims even if the pay isn't that good, it's still enough to live on. They won't be able to buy luxuries, but necessities can definitely be covered
