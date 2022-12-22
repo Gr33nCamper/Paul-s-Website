@@ -383,9 +383,17 @@ Well, everyone except Siraj is free on Wednesday evening. And after the upcoming
 As for me, the week of 12/25 - 12/31, I'll only be free 12/26 and 12/27. Since 12/28 is when we're leaving for the ski trip
 
 Either way it goes, some of us won't be able to make it. Just comes to show how early you have to plan something for even the most remote chance of it happening and also how much more difficult it is to get your friends together after you all graduated
-  
-**Dec 18, 2022:**
 
+&nbsp; 
+  
+&nbsp;
+
+**Dec 18, 2022:**
+  
+Jack returned. I liked the surprise gift: Hot cocoa bomb
+
+---
+  
 Mopped the kitchen floor, did some yard work
 
 &nbsp; 
@@ -407,6 +415,10 @@ It was frigid at Lake Elizabeth
 &nbsp;  
 
 **Dec 20, 2022:** 
+
+We finally saw the Ghost Cat! 
+  
+<a href="https://ibb.co/R2NkHKy"><img src="https://i.ibb.co/9nhkY0t/IMG-2530.jpg" alt="IMG-2530" border="0" width="420" height="590">
   
 Dentist appointment. Found out I need to floss the sides of the tooth, not just directly in the gap. That will combat the brown stains. Also brushing longer but gently, like a massage
   
