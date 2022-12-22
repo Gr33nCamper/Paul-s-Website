@@ -357,3 +357,101 @@ Surprised that Wesley and I were able to have a conversation over Messenger so e
 --- 
   
 You wouldn't believe it, but the Google Form method actually worked! We narrowed it down to Wednesday evening between 6 and 9p. So in fact, the planning did go somewhere 
+
+&nbsp;
+  
+&nbsp;
+
+**Dec 17, 2022:**
+
+_The Fame_ by Lady Gaga goes hard bruh 
+
+I feel like this year I've been more open to music genres and vibes other than rap and hip hop whether that's indie pop, disco, country, rock, metal, Latin, opera, 90s R&B, soul, medieval music, hyperpop, phonk, house music, etc 
+
+--- 
+
+After watching Anime House finale by RDCworld1, I'm curious about One Piece, Death Note, and Yu Yu Hakusho. Well, I was thinking about entering a pirate arc but now I'm thinking Death Note captures my interest more
+
+--- 
+
+Glad I went out for a solo run today, it was quite beautiful outside and felt more alive breathing in the fresh air and getting sun. Also it was fun to skip tracks that didn't fit the mood, like nah I'm not feeling this one let's swap it out. Like you're not forced to sit through a song that doesn't go with running, you're not obligated to give your time to listen to that song it's a free market economy if you like it, then listen if you don't feel like listening, don't force yourself to listen to it just to appear like a loyal fan. Like even though I liked Tyler, The Creator a lot back in high school, I don't really listen to his music all that much these days, people's tastes change over time and it's ok
+
+---
+
+Well, everyone except Siraj is free on Wednesday evening. And after the upcoming Friday, Rishab will be in Florida.
+
+As for me, the week of 12/25 - 12/31, I'll only be free 12/26 and 12/27. Since 12/28 is when we're leaving for the ski trip
+
+Either way it goes, some of us won't be able to make it. Just comes to show how early you have to plan something for even the most remote chance of it happening and also how much more difficult it is to get your friends together after you all graduated
+  
+**Dec 18, 2022:**
+
+Mopped the kitchen floor, did some yard work
+
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 19, 2022:** 
+
+Gideon brought down da gift from White Elephant! Also I hope whoever got the golden cat nutcracker enjoys it
+  
+Returned to Fairwood Cafe. Baked #1 Pork Chop was delicious! Also the seafood curry and Borsch soup
+
+It was frigid at Lake Elizabeth
+
+24Hr Fitness kinda wasn't it. Cramped and the machines aren't as good for lifting
+
+&nbsp; 
+  
+&nbsp;  
+
+**Dec 20, 2022:** 
+  
+Dentist appointment. Found out I need to floss the sides of the tooth, not just directly in the gap. That will combat the brown stains. Also brushing longer but gently, like a massage
+  
+AVATAR: WAY OF WATER was fire, better than the first but not on the order of 1000x. I like the Loak and Payakan friendship and seeing Jake as a father. However, it lacked a level of depth shown in the first movie since it shows so much of Jake's development but in this one the focus is more on saving his kids
+  
+Got some fried calamari for dinner, then found out from Vaush that Trump has trading cards now and is in a lot of debt from lawsuits. 
+  
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 21, 2022:**
+
+No success with shark fishing today due to low tide, but explored new locations: Foster City, San Mateo, and Burlingame. Also listened to a lot more Avatar soundtrack and learned some more about the backrooms 
+
+Nick the Greek Arc continues 🥙🇬🇷
+  
+---
+
+If you get rejected from art school, 
+ 
+over the Aryan nation you will rule - Master Oogway
+  
+---
+
+Haha imagine organizing a link-up but nobody actually talks to you during the link-up they just talk to each other haha wouldn't that be like so awkward like bro you literally set it up but they show barely any appreciation or respect like ok I guess you don't care that's cool. Definitely couldn't be me guys, just throwing this out there, honestly I'm fine. What?? No I'm not crying, I've just been cutting onions for this burrito the past hour anyways can you pass me the red and green salsa, this is a New Mexico Christmas we're talking about.
+
+---
+
+Sushi was fire, but definitely not worth the side of un-inclusive conversation. At that point, I'd rather just eat alone.
+
+Needless to say, I guess I'll be occupied Jan 02. No hard feelings, I don't feel like the "homies" and I are that close anymore. Without proximity, there's no real stuff to talk about and I'm sorry but I'm not the guy to be all chatty about my life like that. And you know what, it's fine if you don't want to know about me, I'll just talk about it to someone else who wants to know, whether that's the Lord, a camera, or Panini
+
+Ah haha, *polite laughter* 🙂😐
+
+Next time, organize for yourselves. I'm not doing that shi no more
+
+Nothing personal, but the squad is getting left in 2022. #ByeeeeeByeBYeBirrrrrrrrrdie
+
+They didn't win. They only think they won
+
+I didn't know it was my job to be a comedian when I can't even read the crowd anymore due to how much time has passed
+
+Still hungry, sushi wasn't very filling. Sushi buffet would've been better you're right
+
+&nbsp; 
+  
+&nbsp;
