@@ -444,7 +444,7 @@ over the Aryan nation you will rule - Master Oogway
   
 ---
 
-Haha imagine organizing a link-up but nobody actually talks to you during the link-up they just talk to each other haha wouldn't that be like so awkward like bro you literally set it up but they show barely any appreciation or respect like ok I guess you don't care that's cool. Definitely couldn't be me guys, just throwing this out there, honestly I'm fine. What?? No I'm not crying, I've just been cutting onions for this burrito the past hour anyways can you pass me the red and green salsa, this is a New Mexico Christmas we're talking about.
+Haha imagine organizing a link-up but nobody actually talks to you or your friend you brought along during the link-up they just talk to each other haha wouldn't that be like so awkward like bro you literally set it up but they barely show any appreciation or respect like ok I guess you don't care that's cool just go on without me I guess, not like I'm worth talking to anyways. Definitely couldn't be me guys, just throwing this out there, honestly I'm fine. What?? No I'm not crying, I've just been cutting onions for this burrito the past hour anyways can you pass me the red and green salsa, this is a New Mexico Christmas we're talking about.
 
 ---
 
@@ -459,6 +459,10 @@ Next time, organize for yourselves. I'm not doing that shi no more
 Nothing personal, but the squad is getting left in 2022. #ByeeeeeByeBYeBirrrrrrrrrdie
 
 They didn't win. They only think they won
+  
+Enjoy your bronze medal 🥉
+  
+Thank you so much guys for being the best friends I could ask for! If I ever want to be left out of conversations, I know I can always count on you guys to come through 😃👍
 
 I didn't know it was my job to be a comedian when I can't even read the crowd anymore due to how much time has passed
 
