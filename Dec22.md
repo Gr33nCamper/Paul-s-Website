@@ -471,3 +471,112 @@ Still hungry, sushi wasn't very filling. Sushi buffet would've been better you'r
 &nbsp; 
   
 &nbsp;
+  
+**Dec 22, 2022:**
+
+Ed got super mad when I said yo why you coughing like crazy? Are you Walter White or something? U got terminal cancer? It was just a joke, but I guess you can't joke about stuff like that around people. I thought it was funny because of Breaking Bad
+
+Vargas Plateau was fun. Saw da chill horse again. Also coyote, quail, and dead mole
+  
+--- 
+  
+Throwback to first sighting of chill horse on Christmas Eve 2021: 
+
+<a href="https://ibb.co/71Ccvqy"><img src="https://i.ibb.co/W259nLK/IMG-1258.jpg" alt="IMG-1258" border="0" width="400" height="550">
+  
+---
+
+Wii Play Tanks Two-player 20 Mission freestyle is a little too easy now
+  
+
+  
+---
+  
+I tried single player but these guys for real got me fighting like 8 purple tanks on my own like come on bruh. Also once I got to the invisible white tanks, I was literally just shooting at the tracks and dodging shells. There was no cover at all.
+
+Cooked some more tomato egg stir-fry. This time there wasn't too much water, but I added a little too much oil, so the some of the eggs were too soft 
+
+Played Super Mario Bros again with Mike and Jack. Had a lot of fun jumping on enemies and getting power-ups
+
+Time for some more solo adventures. Ed will be occupied for some time with work and seeing Ana. At first I was like c'mon bruh but now I'm like aw heck yeah bc tbh you kinda get tired of seeing the same person again and again
+  
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 23, 2022:**
+  
+Resumed _The Adventures of Huckleberry Finn_ audiobook on Spotify for the first time since June
+
+Did some yard work, had to cut some flower bushes growing wayy too far into the walkway
+
+You wouldn’t believe it, but the spicy pork wrap from Rice Junky messed up my stomach more than the Main Chick Supreme. Maybe since it’s not as spicy, I chewed it more thoroughly so more pieces of it were available to irritate my stomach?
+  
+Finished S3 of BB, I was like bruh I knew Gale wouldn't make it and now I understand the Jesse Pinkman crying while holding gun meme. Also when I saw Andrea I was like I KNOW HER, isn't she Jesse's future partner????? 
+  
+JJBA doesn't cease to impress, in S3: Battle in Egypt, they've introduced Iggy the Fool and now they're fighting people who have stands related to Egyptian gods like Anubis or Thoth. It's all quite interesting, because it's not just works of complete fiction but they have some basis in the mythology of ancient civilizations so there's a connection to the real world. I don't need to remember a bunch of lore in some universe that is nothing like our own, bc again I don't want to become so disconnected from reality that I begin to retreat into a fantasy world instead of facing the real world with all its challenges, fears, wonders, and sights
+
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 24, 2022:**
+  
+hold up, are my eyes deceiving me or did I just get a notification
+for a NEW CARTI POST
+
+There’s no way this fool is using that as the cover for his next single, and certainly not for an album  
+
+Went shopping for ingredients. Apparently coriander is synonymous with cilantro, mace is just the skin of nutmeg, and there’s something called Amchoor which is really just mango powder 
+
+_Incantation_ wasn’t as scary as _The Nun_ while I was watching, but more unsettling afterwards. It wasn't exactly the caterpillars or trypophobia that got me, but the idea of people sacrificing to demons and that got me thinking, are there any modern day "demons" that subtly take things from us which should really belong to God and what do they promise us in exchange? Do they ever really live up to those promises? What are the hidden problems with it? What do we fail to see when we're in that situation but realize after when it's too late?
+  
+&nbsp; 
+  
+&nbsp;
+  
+**Dec 25, 2022:**
+
+I was up at around 4a bc I was so unsettled, so I was just browsing the carti sub and seeing what people had to say about the carti IG post and how he got people's hopes up again only to not drop. It was pretty funny. I went back to sleep a little later when the sun was nearly rising bc then I wasn't so scared and also I piled on another blanket to add both extra weight and insulation 
+  
+Merry Christmas, 2 yrs since WLR
+  
+---
+  
+🚨 CARTI TWEET!! 🚨 *THIS IS NOT A DRILL** 
+  
+---
+  
+"Nothing Is Lost (You Give Me Strength)" by The Weeknd is my new fav song
+  
+---
+
+Every Christmas since 2020, I have been in Union City and some way or another, carti pulls something off that day
+  
+&nbsp;
+  
+2020: Drops WLR
+  
+&nbsp; &nbsp; &nbsp;biked to Ed’s house, got Subway and Sheng Kee bakery, watched Terminator
+  
+2021: Changes pfp to joker facepaint pic 
+  
+&nbsp; &nbsp; &nbsp;rode around town with Ed, Marco, and Mike to get ingredients for steak, cooked steak
+  
+2022: Makes two tweets, changes name to “.”
+	  
+&nbsp; &nbsp; &nbsp;cooking session @ Ed's house. Roasted goose, cooked alligator sauce picquante, pheasant curry 
+
+--- 
+  
+Christmas Dinner 2022 *Colorized
+
+<a href="https://ibb.co/PZmcmWT"><img src="https://i.ibb.co/Z6LBLgH/IMG-5202.jpg" alt="IMG-5202" border="0" width="550" height="430">
+  
+---
+
+Inside da gift, was ah gummy bear (shaped container with more red and green sour gummy bears inside)!! And it tastes even better than it looks! 
+  
+<a href="https://ibb.co/PgBNPzN"><img src="https://i.ibb.co/M7qst5s/IMG-2551.jpg" alt="IMG-2551" border="0" width="400" height="550">
+  
+Also Dad gave me an Apple Watch and it appears both stylish and practical
