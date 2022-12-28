@@ -488,7 +488,7 @@ Throwback to first sighting of chill horse on Christmas Eve 2021:
 
 Wii Play Tanks Two-player 20 Mission freestyle is a little too easy now
   
-
+<a href="https://ibb.co/q0f7CJd"><img src="https://i.ibb.co/Q8RpkDf/tanks-wii-play.jpg" alt="tanks-wii-play" border="0" width="400" height="550">
   
 ---
   
@@ -580,3 +580,43 @@ Inside da gift, was ah gummy bear (shaped container with more red and green sour
 <a href="https://ibb.co/PgBNPzN"><img src="https://i.ibb.co/M7qst5s/IMG-2551.jpg" alt="IMG-2551" border="0" width="400" height="550">
   
 Also Dad gave me an Apple Watch and it appears both stylish and practical
+	
+&nbsp;
+	
+&nbsp;
+
+**Dec 26, 2022:**
+
+Surely no .MonDaY drop right?
+
+--- 
+
+Smoked his ahh, it was awesome running around outside. The colors of the trees are really beautiful
+
+---
+
+Closed all the rings for Apple Watch, super satisfying
+
+---
+
+Went to San Ramon today. There was a dinner party at Jonathan's house. My parents are friends with Jonathan's parents, but you probably guessed that already. 
+
+Idk if it's just the newer generations of kids, but it's like a lot of them don't really be talking about nothing at all. Like you be saying a whole lot of stuff, but I don't know what it is you're talking about exactly. 
+
+&nbsp;
+
+&nbsp;
+
+**Dec 27, 2022:**
+
+After a certain amount of time being with others, you kinda want some alone time. Not everything I do has to be with someone else. Even though it's good to bounce ideas off others or have a fun time with a lot of people, I think 9 times out of 10, you make those striking realizations when you're in silence alone or deep in thought. Also I find it quite enjoyable to see skits of people just acting as themselves and having internal dialogue because then you really get to see what it's like from their perspective. If only you could do that in real life. Like just spectate a person's thoughts for just 10 minutes and you'd be able to see the world from an entirely new perspective. Doesn't even need to be in spoken word or anything 
+
+I write much differently from the way I talk. I know that's true for most people, but for me especially that's true. Like I'll talk about something and it'll appear to be at a surface level but in reality the understanding of the concept or idea could go much deeper, it's abstracted through speech. But then again, I guess that's true for most people. You don't say everything that comes to mind right?
+
+Not everyone gives a crap about what you're talking about. You could be saying something that falls on deaf ears. But maybe that's just a risk you need to take. You're not for everyone since you don't appeal to the lowest common denominator (which, might I add, is a good thing)
+
+Sometimes I'm way too serious about things when I should loosen up. And sometimes I neglect things I should be more focused on
+	
+&nbsp;
+	
+&nbsp;
