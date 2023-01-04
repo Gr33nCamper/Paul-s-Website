@@ -620,3 +620,71 @@ Sometimes I'm way too serious about things when I should loosen up. And sometime
 &nbsp;
 	
 &nbsp;
+
+**Dec 28, 2022:**
+
+I wasn't kidding about the skit where I cast everyone as myself. My idea for it is it'll be in a Math 140A lecture. Prof Seward will be teaching the class Thm 2.34 on compact sets being closed and give the proof of that. Meanwhile, I'm in the room being like how I usually act, probably thinking about how the class is much smaller now that it's like more than halfway through the quarter and I'm super behind on hw and lectures and how are we supposed to instantly digest all this new material when I haven't even previewed it before class. Paula and Jenny will be talking to one another. Paula in a southern drawl and Jenny in an Italian accent
+
+---
+
+Looking for bottles and cans around Lake Elizabeth was easily the best adventure so far, even surpassing the DIE LIT trip. And during that trip we not only saw Claude the Albino alligator and tatanka and rode Bart and went around SF, but also got Fairwood Cafe for dinner. 
+
+Pretty good haul, $4.50 for more than 50 plastic bottles and like 26 cans. Double the amount we got yesterday
+	
+&nbsp;
+	
+&nbsp;
+
+**Dec 29, 2022:** 
+	
+Shaved off moustache
+	
+Long day on the road, only had like three hours of sleep
+
+Jack in The Box for breakfast, In-N-Out for lunch, and Pepper Mill diner for dinner
+	
+We went around talking about this year's achievements/good memories and stuff we needed to improve. Mike and Jack had a debate over what counts as a connection and I enjoyed listening to it but we had to move on to Mike sharing otherwise we would have been there all night
+	
+I like double doubles but those fries are a bit too greasy for my taste. I know I used to like deep fried stuff but now my stomach kinda recoils at the sight of super greasy food bc it's not only asking to get your arteries clogged, but also it just makes me feel gross inside
+
+First time driving into Nevada, I liked the desert landscape. Okay I was kinda more focused on the road, but I could see out the corner of my eye
+	
+Hilton Resort World 5-star hotel, best hotel since Pepper Mill and Silver Legacy. And you should've seen the red color theme and stone lions and bamboo. And interior design?? I've never seen anything so luxurious
+	
+&nbsp;
+	
+&nbsp;
+	
+**Dec 30, 2022:** 
+
+Finally shaved off the beard in the Awana spa men's area. Once I saw the shaving cream, hot water, and complementary razors, I knew what I had to do
+	
+Pool was fun, practiced freestyle and breaststroke again. Spa was super high-end. The lighting, lounge area, free water, and the bathrobes??? That's what I'm talking about
+	
+You know what? I forgot how it was like to not be able to run things back and switch channels when commercials came on. Like one minute you're watching Harry Potter and then you switch over to like SpongeBob or Rick and Morty. TV is awesome, but only when it's in hotels bruh. Like cable in your house? Nah, that ain't it. You don't have the view and the bed
+
+&nbsp;
+	
+&nbsp; 
+
+**Dec 31, 2022:** 
+
+RETURN TO DEATH VALLEY AFTER 10 YRS
+	
+THE DESERT IS MY HOME, I LIKE DA WEST 🏜️
+	
+Sand dunes, high winds, mountains, and clouds 
+	
+--- 
+
+Went to Ohjah Japanese restaurant in Pahrump and I was so surprised I wasn't hungry afterwards. Usually they stiff you for sushi bc you'll get like one roll with like eight cuts but then it's like $16.00. I like sushi as much as the next guy but come on, does my wallet need to become thin in order for me to be full????? 
+
+<a href="https://ibb.co/MZmR2yP"><img src="https://i.ibb.co/S5zKsDV/IMG-2594.jpg" alt="IMG-2594" border="0" width="480" height="390">	
+	
+The sushi boat is so worth it, it's on an actual boat
+	
+---
+	
+I lost the New Year's Eve Monopoly game
+	
+We had fun though, that's all that matters right? Right? Oh come on guys, I don't think this warrants—oW! Hey, stop throwing tomatoes!  
