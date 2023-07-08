@@ -14,7 +14,8 @@ But anyways
 
 here's what happened today 
 
-- 
+-
+
 Called Ed on FaceTime, he was ranting about how Tristan was being unreasonable based on his interpretation of the story
 
 In other news, he agrees with Marcus Aurelius' quote that the quality of your life depends on the quality of your thoughts
