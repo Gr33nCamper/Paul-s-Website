@@ -2,6 +2,6 @@
 
 [Fall](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/index)
 
-[Summer: Jul & Aug](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Summer/index) 
+[Summer: w/o Jun](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Summer/index) 
 
 [Spring: May](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/May)
