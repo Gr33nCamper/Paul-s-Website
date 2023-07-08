@@ -98,9 +98,6 @@ SMH, YouTube turned off my notifications for his channel
 
 6 yrs since Blonde..
 
-<a href="https://ibb.co/S5VmtqC"><img src="https://i.ibb.co/ydgk6Lj/Frank-Ocean-Blonde-Cover.jpg" alt="Frank-Ocean-Blonde-Cover" border="0" width="400" height="400"></a>
-<a href="https://ibb.co/kmDTg8M"><img src="https://i.ibb.co/CP9y57W/Z3-Sl-Mf-b-Fk22mc-KF7-Wh-OG19-Mr-EMWEXY9-Bxpx3zf-LN0w.jpg" alt="Z3-Sl-Mf-b-Fk22mc-KF7-Wh-OG19-Mr-EMWEXY9-Bxpx3zf-LN0w" border="0" width="400" height="400"></a>
-
 &nbsp;
 
 Mr. Breaux sure is taking his time.
@@ -160,8 +157,6 @@ it will have been a worthwhile wait.
 LIR2 🥀🦇💔🗝🐻‍❄️
 
 5 Years ago today.. 🚧⚰️🔥®
-
-<a href="https://ibb.co/3yjf7Sq"><img src="https://i.ibb.co/Gv8s0CL/FZbtb-V1-Vs-AA-AYg.png" alt="FZbtb-V1-Vs-AA-AYg" border="0" width="400" height="400"></a> <a href="https://ibb.co/Vmjj0Cd"><img src="https://i.ibb.co/tXmmw2S/FZbtbp-LUEAAa-TQo.jpg" alt="FZbtbp-LUEAAa-TQo" border="0" width="400" height="400"></a> 
 
 &nbsp;
 
