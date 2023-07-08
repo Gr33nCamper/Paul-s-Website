@@ -2,4 +2,4 @@
 
 [Archive](https://r3dbabyvamp.github.io/Paula-s-Website/YRS/index)
 
-[Extras](https://r3dbabyvamp.github.io/Paula-s-Website/Extras/index)
+[Extras](https://r3dbabyvamp.github.io/Paula-s-Website/XTRAS/index)
