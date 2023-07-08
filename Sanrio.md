@@ -26,7 +26,7 @@ He hates SoCal btw
 I disagree 
 
 The weather's nice, I have church family here, puts distance between me and home, 
-and I can take it slower out here just to name a few things.
+and I can take it slower out here just to name a few things. Oh, and did I mention the beach? And Raising Cane's, Main Chick, and Reading Cinemas? And how Vons is right next to LR? And how the bus is super convenient in summer now that it's barely even full? Come on man, you already know summer 2023 in SD >> summer 2022 back home and it's only been like two weeks
 
 -
 
@@ -48,13 +48,13 @@ Caught a pop fly
 
 Finished _A Shepherd Looks at Psalm 23_
 
-Did a Hot Ones interview, but thankfully the questions weren't too serious
+Did a Hot Ones interviewbut thankfully the questions weren't too serious
 
-And the wings weren't too bad, at most 40% of the Supreme
+Okay actually one asked what I wanted to be written on my tombstone
 
-Well, one asked what do I want to be written on my tombstone. 
+I said "Fully spent torch" as in I gave everything I had and burned brightly during my time alive
 
-I said "Fully spent torch" as in I gave everything I had and burned brightly as I lived
+Wings weren't too bad, at most 40% of the Supreme
 
 -
 
