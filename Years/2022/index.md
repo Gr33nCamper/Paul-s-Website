@@ -1,7 +1,7 @@
-[Winter: Dec 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Dec22)
+[Winter: Dec](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Dec22)
 
-[Fall 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/index)
+[Fall](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Fall/index)
 
-[Summer 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Summer/index) 
+[Summer](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/Summer/index) 
 
-[Spring: May 2022](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/May2022)
+[Spring: May](https://r3dbabyvamp.github.io/Paula-s-Website/Years/2022/May22)
