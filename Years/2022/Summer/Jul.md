@@ -6,8 +6,6 @@ Playboi Michael
 pLayBoi MiCHael
 PLaybOI MiCHAeL
 
-<a href="https://ibb.co/gd6BSdv"><img src="https://i.ibb.co/tz3WqzZ/Costco-Lit.png" alt="Costco-Lit" border="0" width="500" height="500"></a>
-
 &nbsp;
 
 **Jul 19, 2022:**
