@@ -1,67 +1,71 @@
-**July 07, 2023:** 
+**July 11, 2023:** 
 
-hey. been a while .. 🙃
+I know what you're thinking, but we didn't get a free 7-Eleven slurpee
 
-&nbsp;
+Just a used bike and some stuff from Ranch 99 
 
-I realized this is easier to update and read than the journal
+Well
 
-Since I can type faster and more legibly than I can write
+I guess I should mention why that particular Ranch 99 has a special significance..
 
-Allowing me to describe things at greater lengths
+It was the first Ranch 99 I visited with Dad coming down to SD for FA21 and moving into my Mirada apartment. It was there I got my rewards card (which they don't accept up in NorCal like c'mon bruh)
 
-But anyways
+To be honest, I'm not really mad even though it's Seven Eleven day. Losing a free item isn't that bad since there's no cost
 
-here's what happened today 
+Ok technically, there's still a cost bc we would have to drive there and it takes time which we'll never get back 
 
--
-
-Called Ed on FaceTime, he was ranting about how Tristan was being unreasonable based on his interpretation of the story
-
-In other news, he agrees with Marcus Aurelius' quote that the quality of your life depends on the quality of your thoughts
-(e.g. to not be depressed, don't think about depressing things). Gee? Who knew!
-
-He hates SoCal btw 
-
-I disagree 
-
-The weather's nice, I have church family here, puts distance between me and home, 
-and I can take it slower out here just to name a few things. Oh, and did I mention the beach? And Raising Cane's, Main Chick, and Reading Cinemas? And how Vons is right next to LR? And how the bus is super convenient in summer now that it's barely even full? Come on man, you already know summer 2023 in SD >> summer 2022 back home and it's only been like two weeks
+So nothing is really free
 
 -
 
-Finally finished the breakfast burrito that was in the fridge since last Sat
+Guess what arrived today? 
 
-Went to Geisel Summer Table for the first time 
+Da North American Wildlife poster we ordered back in June ! 🌲🦌🦬 
 
-Read a little bit of Walden (ok just the foreword and part of the intro)
+which we thought got lost in transit
 
--
+Gideon already got refunded for it so hopefully they don't charge extra
 
-Softball game was a striking success 🥎
+Since I have no use for two of the same poster
 
-Ran to home 2x, got out once 
-
-Caught a pop fly
+this shall be a gift
 
 -
 
-Finished _A Shepherd Looks at Psalm 23_
+A random visit to campus Target revealed the missing pieces of the puzzle 
 
-Did a Hot Ones interviewbut thankfully the questions weren't too serious
+U know how there were the collectible GOTGV3 cereal boxes in stores from May?
 
-Okay actually one asked what I wanted to be written on my tombstone
+Well, here is the complete set 
 
-I said "Fully spent torch" as in I gave everything I had and burned brightly during my time alive
+1. Reese's Puffs -> Rocket Raccoon
 
-Wings weren't too bad, at most 40% of the Supreme
+2. Cinammon Toast Crunch -> Peter Quill
 
--
+3. Cookie Crisp -> Nebula
 
-Played Saboteur
+4. Trix -> Drax
 
-Got exposed on the first round bc I was one saboteur against the world :(
+5. Honey Nut Cheerios -> Mantis
 
-Second round there were three saboteurs so we easily won xP
+6. Lucky Charms -> Groot
 
+7. (Bonus) GOTGV3 cereal with all of them: cocoa puffs and mini marshmallows
 
+*Speaking of GOTGV3, the HD version of the movie came out on FMovies already so now Mike and Ed can watch
+
+- 
+
+Tostada night was a success! 
+
+I was stuffed after only eating two and also we had to rush to Pryr Mtg after 
+
+First time riding in Johnny (Eli's car) w Ryan as driver
+
+It was weird.
+
+Seeing Gideon not moving his arms to steer, that is
+
+---
+
+Anyways I hope there's no funny business on Friday's midterm 
