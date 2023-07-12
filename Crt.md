@@ -64,7 +64,7 @@ Well, here is the complete set
 
 *Speaking of GOTGV3, the HD version of the movie came out on FMovies already so now Mike and Ed can watch
 
-- 
+-
 
 Tostada night was a success! 
 
