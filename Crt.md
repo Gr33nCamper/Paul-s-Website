@@ -10,6 +10,16 @@ I guess I should mention why that particular Ranch 99 has a special significance
 
 It was the first Ranch 99 I visited with Dad coming down to SD for FA21 and moving into my Mirada apartment. It was there I got my rewards card (which they don't accept up in NorCal like c'mon bruh)
 
+&nbsp;
+
+Today (Jul 11, 2023)
+
+<a href="https://ibb.co/vXFrfsH"><img src="https://i.ibb.co/Sfj1HQP/IMG-3361.jpg" alt="IMG-3361" border="0" height="400" width="500"><a> 
+
+Sep 19, 2021
+
+<a href="https://ibb.co/xDhb9v0"><img src="https://i.ibb.co/s2j4xSG/IMG-1007.jpg" alt="IMG-1007" border="0" height="500" width="350"><a> 
+
 To be honest, I'm not really mad even though it's Seven Eleven day. Losing a free item isn't that bad since there's no cost
 
 Ok technically, there's still a cost bc we would have to drive there and it takes time which we'll never get back 
