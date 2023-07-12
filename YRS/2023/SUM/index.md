@@ -1,3 +1,3 @@
-[JUL](https://r3dbabyvamp.github.io/Paul-s-Website/YRS/2023/SUM/JUL)
+[JUL](https://gr33ncamper.github.io/Paul-s-Website/YRS/2023/SUM/JUL)
 
-[AUG](https://r3dbabyvamp.github.io/Paul-s-Website/YRS/2023/SUM/AUG)
+[AUG](https://gr33ncamper.github.io/Paul-s-Website/YRS/2023/SUM/AUG)
