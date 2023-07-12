@@ -1,3 +1,3 @@
-[Crt (Jul 07)](https://r3dbabyvamp.github.io/Paul-s-Website/Crt)
+[Crt (Jul 07)](https://gr33ncamper.github.io/Paul-s-Website/Crt)
 
-[Archv](https://r3dbabyvamp.github.io/Paul-s-Website/YRS/index)
+[Archv](https://gr33ncamper.github.io/Paul-s-Website/YRS/index)
