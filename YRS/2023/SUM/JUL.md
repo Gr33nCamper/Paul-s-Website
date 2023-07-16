@@ -162,3 +162,124 @@ Anyways I hope there's no funny business on Friday's midterm
 
 &nbsp;
 
+**July 12, 2023:** 
+
+Farewell and godspeed to the SLT embarkees 🫡🗽
+
+(Nancy, Nao, Tobi, B Lin)
+
+&nbsp;
+
+Please share what you have received
+
+and be amazed at what God can do
+
+-
+
+&nbsp;
+
+Sincerely,
+
+P. Peng ✍️
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 13, 2023:** 
+
+Tu-Th felt like one long Thursday
+
+- 
+
+Met Provost Paul Yu for the first time
+
+I enjoyed the conversation
+
+Got a nifty calculator 
+
+-
+
+Is it weird that I've seen my professors outside the classroom many times? 
+
+(Like at the bus stop or getting groceries or walking around campus)
+
+I feel like saying something but at the same time they probably don't know me like that
+
+-
+
+Fried pork cutlet with shredded cabbage for dinner tonight
+
+Didn't watch Indiana Jones but I'm sure we didn't miss out too much right?
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 15, 2023:** 
+
+I kind of got angry when Ed said it's good to expand your interests because I took it to mean he thought my interests weren't diverse enough
+
+And that got me thinking, how much is enough? Be interested in everything you like? Master all the subjects in the world? Talk to every type of person in the world? Don't you know that I only have a finite amount of time on this Earth and can only keep up with so many things?
+
+Part of me gets angry that I seem to be benefitting from the friendship than he is and doesn't often take my advice on stuff. But I guess my life experience is not so much based on talking with people about stuff but doing things on my own. Which is important for getting stuff done but not really for relationships with others. So you can be a good worker or student but be a poor conversationalist.
+
+I also got angry when Ed said SoCal is the worst place to live in because I'm currently living there like why you gotta send shots like that. Keep that to yourself man
+
+Think I need a break from that guy because he's kind of pissing me off always asking about my social life and when I'm coming back to the bay area. As if I wasn't already there so often last year. Just because you hate SoCal doesn't mean everyone has to hate it. But similarly, just because I like it doesn't mean everyone has to like it
+
+And you think your entire life is about money and finding the woman of your dreams? Don't you realize that there's more to life than that? More than just comfort and ease?  
+
+It's hard to be patient and deal with people who don't really understand you. Or know you. I don't think he knows me to be honest. He might think he does, but there are parts of me that he simply wouldn't understand. Maybe he'll never understand. It's okay. 
+
+This is exactly why there are cameras to talk to and journals and personal websites to write down exactly what you're thinking without having to explain in painstaking detail exactly what you mean. Conversations are cool but sometimes you don't want to go through the trouble of giving all the context for something.
+
+Because really this is just expressing how I feel to myself. I know what I mean. 
+
+To talk about something that happened is no problem but to have to explain all of it when it appears very obvious to me is kind of arduous. 
+
+For example, to understand why I like rural areas more than urban ones, you would probably have to know something about my trip to Indiana and how I read many books about wilderness survival when I was younger and how I like the sun and fresh air and hate being indoors when it's super sunny outside. And I guess some of Tyler's music played a part in making me like traveling and nature. Also how nature evokes a sense of awe and wonder which is really an inconsolable longing for heaven, our true home.
+
+But to myself, I can simply say: The explanation of this is trivial (bc I already knew all of the context I mentioned)
+
+I hate feeling like I have to justify why I'm not weird to people. I get that not everything I do is considered conventional but can't you see that the motivation for such things is quite understandable? I'm not an alien. I'm a human. 
+
+I make mistakes. I have dreams. I feel emotion.
+
+Looking at me in a funny way and making me feel like I'm weird is exactly what made me angry. Because who gave you the right to decide that what I'm like is unusual? Or who gave you the right to be the judge of whether my life is spent in a meaningful way? Or who gave you the right to decide what's acceptable and what's not? Who said college life has to be the way you say it has to be? Who said you have to have a friend group that goes all over the place? Who says that I have to return to NorCal so often? Who says I have to spend my time talking to you? 
+
+NOBODY 
+
+DO I MAKE YOU TALK ABOUT WHATEVER I LIKE EVEN IF YOU DON'T GET IT? 
+
+GO AHEAD. MAKE MY DAY. ASK ME ABOUT MOLECULAR ORBITALS. 
+
+OR DARBOUX SUMS 
+
+OR THE HANDSHAKING LEMMA
+
+OR THE WELL ORDERING PRINCIPLE. OR SUP'S AND INF'S 
+
+OR PROBABILITY RULES 
+
+I'LL WAIT.
+
+... 
+
+YEAH I THOUGHT SO.
+
+-
+
+Don't you just hate it when someone else thinks they have the right to tell you that what you like is weird as if they're somehow the unquestionable authority on what is acceptable or not like do you actually think everyone else thinks like you? My life isn't the same as yours and it was never meant to be
+
+-
+
+It's hard to love people who make you angry
