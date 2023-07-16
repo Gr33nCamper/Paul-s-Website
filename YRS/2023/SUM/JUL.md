@@ -194,7 +194,7 @@ P. Peng ✍️
 
 Tu-Th felt like one long Thursday
 
-- 
+-
 
 Met Provost Paul Yu for the first time
 
@@ -230,7 +230,7 @@ I kind of got angry when Ed said it's good to expand your interests because I to
 
 And that got me thinking, how much is enough? Be interested in everything you like? Master all the subjects in the world? Talk to every type of person in the world? Don't you know that I only have a finite amount of time on this Earth and can only keep up with so many things?
 
-Part of me gets angry that I seem to be benefitting from the friendship than he is and doesn't often take my advice on stuff. But I guess my life experience is not so much based on talking with people about stuff but doing things on my own. Which is important for getting stuff done but not really for relationships with others. So you can be a good worker or student but be a poor conversationalist.
+Part of me gets angry that I seem to be benefitting from the friendship more than he is and doesn't often take my advice on stuff. But I guess my life experience is not so much based on talking with people about stuff but doing things on my own. Which is important for getting stuff done but not really for relationships with others. So you can be a good worker or student but be a poor conversationalist.
 
 I also got angry when Ed said SoCal is the worst place to live in because I'm currently living there like why you gotta send shots like that. Keep that to yourself man
 
@@ -282,4 +282,22 @@ Don't you just hate it when someone else thinks they have the right to tell you 
 
 -
 
+Is my assessment correct or am I getting angry over something small and not recognizing that my view is possibly incorrect and the other view possibly has some truth to it? 
+
+"Do not reprove a scoffer, or he will hate you;
+
+reprove a wise man, and he will love \ you"
+
+&nbsp;&nbsp;&nbsp;Proverbs 10:9 (ESV)
+
+-
+
 It's hard to love people who make you angry
+
+And more generally those who you don't think did anything to deserve love in the first place
+
+-
+
+And to accept truths about yourself which you don't like
+
+And finding the strength to keep going when you fail again and again 
