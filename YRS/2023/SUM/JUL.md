@@ -256,7 +256,7 @@ I make mistakes. I have dreams. I feel emotion.
 
 Looking at me in a funny way and making me feel like I'm weird is exactly what made me angry. Because who gave you the right to decide that what I'm like is unusual? Or who gave you the right to be the judge of whether my life is spent in a meaningful way? Or who gave you the right to decide what's acceptable and what's not? Who said college life has to be the way you say it has to be? Who said you have to have a friend group that goes all over the place? Who says that I have to return to NorCal so often? Who says I have to spend my time talking to you? 
 
-NOBODY 
+NOBODY.
 
 DO I MAKE YOU TALK ABOUT WHATEVER I LIKE EVEN IF YOU DON'T GET IT? 
 
