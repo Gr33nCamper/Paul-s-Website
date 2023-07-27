@@ -301,3 +301,128 @@ And more generally those who you don't think did anything to deserve love in the
 And to accept truths about yourself which you don't like
 
 And finding the strength to keep going when you fail again and again 
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 21, 2023:** 
+
+Gideon left today, bringing poster with him
+
+Learned about the importance of prayer and good habits to prepare for storms of life
+
+Brownie pie at Up2U Cafe was too sweet
+
+Sneak peak of Viewridge
+
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 22, 2023:** 
+
+Full day of work
+
+McDonald's for breakfast
+
+Moved touchscreen TV with Trip and Jason
+
+Assembled stools
+
+Moved fridge with Jeff, Jason, Jack, John Choi, and John Corea
+
+Sichuan beef and vegetables for lunch
+
+Helped Jeremiah install the Nest thermostats
+
+Trash duty in Chad's truck
+
+Came back for In-N-Out burgers 
+
+My shoe patch failed me again, exposed my sock
+
+Praise practice 
+
+Jenny's ice cream
+
+Exhausted, slept around 12
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 23, 2023:**
+
+First time on praise 
+
+I didn't know the intro for King of Kings was right off the bat
+
+Katsu dinner at the Rodriguez, Wellenkamp, Brex, Jeong, et. al residence
+
+&nbsp; 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**July 26, 2023:** 
+
+I didn't know that the song "I Ain't Worried" was from Top Gun: Maverick
+
+2014 RPG horror game era from CoryXKenshin is appealing to me more than his recent stuff bc it feels like he's more genuine in a sense. Not as much editing and he interacted more with fans. Now it's kind of not the same but I understand that we all get older and can't be stuck in the past 
+
+-
+
+I didn't know chimps were super aggressive killers
+
+but Gorillas and Orangutans are chill apparently
+
+-
+
+Almost lost my sanity to the prison of my own mind
+
+I was working on Hw6 for hours after coming back home, mostly just on Problem 3
+
+Calculating confidence intervals and p-values for hypothesis tests for the differences in proportions..
+
+Thankfully I didn't miss the zoom meeting for the AYM tech camp at 9p 
+
+I hope I can show care and compassion tmrw
+
+When, knowing myself, I might find myself feeling like learning about code is more interesting
+
+But it's not just about coding, it's about people
+
+Can't miss the alarm tomorrow 
+
+Besides, I like the fresh morning air 
+
+I'm sure you don't need me to tell you about how stuffy the apartment can get
+
+-
+
+Just listening to some of the Late Night playlist 
+
+I'm training myself to view 00:00 as the dead of night
+
+Now I use 24-hr time bc it's simpler to read
+
+Texts Go Green was not too difficult to make super clean
+
+Passionfruit instrumental is very soothing
