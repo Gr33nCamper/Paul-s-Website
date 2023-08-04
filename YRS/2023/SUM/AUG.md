@@ -63,3 +63,11 @@ Maybe in like three hours I'd be like "GET ME OUTTA HERE I'M LOSING MY MIND FROM
 Haha 
 
 No, but it's true though. I don't even think I could watch CoryXKenshin or listen to music for more than 2 hours on end. It will eventually get boring. Even if it's something I like
+
+-
+
+Flammable Maths (aka Papa Flammy) has reached his GoFundMe goal! LET'S GOO 
+
+I saw his video yesterday about how he was dealing with pain in his abdomen that felt like getting stabbed with hot knives/needles and then how his laptop broke down completely so he has to film with his phone and an SD card. Also how he depends on YouTube for making a living and must support his wife and daughter. I donated 20 Euros because I felt like he could use it more than me and that's basically how much I spend on Vons groceries anyways. Pity motivated me to respond in this way, instead of only feeling bad but not doing anything 
+
+(*Application of the Sunday Message on the Good Samaritan and how feelings are good, but if you don't act on the pity and compassion you feel to help someone out, then it's just cheap feelings)
