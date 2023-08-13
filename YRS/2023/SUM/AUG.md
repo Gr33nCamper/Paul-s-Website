@@ -285,3 +285,27 @@ I have no problem being alone
 In fact, I wouldn't mind if I was alone in the apartment for a few days
 
 As long as I wasn't there the whole day, only in the evenings
+
+-
+
+BARBIE WAS FIRE BRUH
+
+The claim is true, it's not just a meme
+
+I was cracking up during da movie 😂
+
+Some scenes were so absurd or dumb that they were funny
+
+The colors of each world did a good job illustrating the contrast 
+
+Super saturated pink pastels vs ordinary black, gray, brown, and it's interesting to note the real world was LA
+
+(which you'd think would be sunny but I guess it isn't irl bc of smog)
+
+And the message was surprisingly meaningful too
+
+I got kinda mad that I was the only one from my apartment going 
+
+But it's okay
+
+Some people can't recognize hidden gems
