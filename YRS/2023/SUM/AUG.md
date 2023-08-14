@@ -309,3 +309,65 @@ I got kinda mad that I was the only one from my apartment going
 But it's okay
 
 Some people can't recognize hidden gems
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 13, 2023:** 
+
+Back to coding...
+
+-
+
+It didn't save any of my edits. I'm mad 😡
+
+-
+
+Basically, yesterday Pastor Ed came to give us the Sunday message
+
+It was about how God wants to give us a joyful life and the servants have the most fun loving others
+
+And how often people let good become the enemy of great, trading heaven and following Jesus for land (wealth), oxen (power), and marriage (love) 
+
+As CS Lewis puts it, our desires are far too weak and we cannot comprehend that God wants to give us something greater than anything we've known (or have context for)
+
+-
+
+First summer study session at Rodriguez et al. residence 
+
+and summer supper with da boys since BLin returned
+
+Jeremiah Lim was like "I guess you guys didn't want to come to the banquet" in the chat
+
+but it was at that moment that I climbed over the rail
+
+haha
+
+-
+
+If college is considered having a lot of time bc u don't have to work yet
+
+then I can only imagine how little time work leaves you with
+
+Like is it just gonna be get home and eat dinner, maybe veg out on the couch, sleep, and the next day same thing?
+
+People make it seem like it's gonna be soooo fun to work
+
+I mean, if you like your job then yes
+
+But otherwise, it's gonna be a huge time sink
+
+Part of me wants to believe that the only reason certain people work in the summer
+
+Is because they don't know how to productively manage their time otherwise
+
+And they don't want to look unproductive
+
+But we all know they're not doing squat at that job
+
+And yes we all care so much about your experience with customers and mundane tasks
