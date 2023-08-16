@@ -371,3 +371,70 @@ And they don't want to look unproductive
 But we all know they're not doing squat at that job
 
 And yes we all care so much about your experience with customers and mundane tasks
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 14, 2023:** 
+
+I have all the time I could ever need
+
+it's merely a matter of making the best use of it
+
+(=> It's not how much time you have, but what you do with it)
+
+But you already knew that
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 15, 2023:**
+
+I took an L on PA1
+
+Well, I need to sleep now bc stressing about it when you're tired does nothing
+
+and affects your future performance
+
+Let it go
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 16, 2023:**
+
+Don't waste your lunch or library time
+
+I know the Crooked Man series is fun to watch 
+
+and that there are many genres of music to explore
+
+but
+
+it doesn't have to be rn
+
+those activities are not absolutely requisite
+
+I know you find this hard to believe, Paul
+
+but u can still live w/o CK and music
+
+Trust me
+
+And they're not going to disappear anytime soon
