@@ -489,6 +489,10 @@ I know the library is like my second home but it's starting to get a little old
 
 staying in the same place for too long, no matter where, will surely make me go mad
 
+Being able to move around a large area keeps me sane
+
+Back in quarantine, I'd often pace my bedroom but that's not very large
+
 &nbsp;
 
 &nbsp;
