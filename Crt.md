@@ -1,5 +1,17 @@
-**Aug 19, 2023:**
+**Aug 21, 2023:**
 
-1. F&F (CH.7/8), DT (Prov. 19:15-29, 20:1-16)
+Weather improved, only a gentle mist this morning
 
-2. CS101 HW1, 08/15 LE, PA2
+And the sun even came out!
+
+-
+
+Stomach burning from the xtra spicy calamari combo with pepper powder and sriracha
+
+Had to take tums and a nap
+
+I got up earlier than usual today (6:30a) for 7a Viewridge DT
+
+No more crazy amounts of spice for now
+
+It's not good for your stomach and nobody asked you to do it bruh
