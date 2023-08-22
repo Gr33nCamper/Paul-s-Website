@@ -624,3 +624,17 @@ so really I only hated light and the waking hours bc I was half-dead
 &nbsp;
 
 &nbsp;
+
+**Aug 19, 2023:**
+
+1. F&F (CH.7/8), DT (Prov. 19:15-29, 20:1-16)
+
+2. CS101 HW1, 08/15 LE, PA2
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
