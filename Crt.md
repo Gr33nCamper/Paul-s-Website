@@ -1,57 +1,35 @@
-**Aug 22, 2023:**
+**Aug 23, 2023:**
 
-Fish burrito got old
+HW9 problem 1 solved
 
-also many playlists are getting old
+It wasn't too bad after reviewing cosets
 
-music is no longer what keeps things fresh
-
-you can listen to different music in the same place but it's not THAT different
-
-being in new places helps you think more differently
+Didn't use the First Isom Thm at all though
 
 -
 
-Rested up, slept around 9 hrs
+Haven't had a home-cooked meal in so long
+
+need fresh vegetables
+
+literally just been eating on campus food for the past two days
 
 -
 
-Thank God for the library bc I hate having to do work at home when certain people are super loud on Discord
-
-Bc I totally needed to be updated on every single time you died and whether some guy needs to provide support
+Well today's PA on Moore-Hodgson Algorithm is gonna be fun 🙃
 
 -
 
-Heart melted today
+Art of Inclusive Communication workshop starts in < 1 hr
 
-when I saw videos of children in Korea bringing gifts to adults
+I'll have to be at home for that bc even though the M1's battery life is good
 
-I know it's a social experiment 
-
-but still think I would cry if a kid gave me a hug
-
-Because their intentions are so pure
-
-there's nothing behind it like expecting you to do something for them in return
+It's not enough for 3 hrs of an online Zoom meeting bc that drains A LOT of power
 
 -
 
-I won't let you
+Was feeling anxious this morning
 
-let you give up on a miracle 
+Had to listen to some calming music
 
-when it might save you 
-
--Paramore "Miracle"
-
--
-
-THE FIRST PROBLEM FOR M103B HW9 IS DRIVING ME INSANE
-
-AM I JUST SUPPOSED TO GUESS A RING HOMOMORPHISM FROM R TO S THAT WORKS????
-
-ONLY HINT WAS 1ST ISOMORPHISM THEOREM MIGHT BE HELPFUL
-
-VERY HELPFUL HINT
-
-NOT
+Piano/classical music really helps
