@@ -33,3 +33,13 @@ but still think I would cry if a kid gave me a hug
 Because their intentions are so pure
 
 there's nothing behind it like expecting you to do something for them in return
+
+-
+
+I won't let you
+
+let you give up on a miracle 
+
+when it might save you 
+
+-Paramore "Miracle"
