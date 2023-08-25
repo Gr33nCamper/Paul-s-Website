@@ -102,7 +102,7 @@ when people return in the fall like wow! so much has changed!!
 
 And you're just like uh-huh yep we know
 
--
+................................................................................................................................................
 
 I shouldn't have expected Ed to understand
 
@@ -223,3 +223,14 @@ It's good to do good things because they're good
 But we don't do bad things for the sake of being bad, only to gain something good
 
 (see C.S. Lewis' _Mere Christianity_ or St. Augustine's _Confessions_)
+
+................................................................................................................................................
+
+PSST. Hey me! It's really great that you know exactly what I mean without me having to explain so much context. Really, it gets frustrating sometimes talking to others. And every little inside joke or comment or subtle thing about me you already know. Perks of being you huh!
+
+Earlier today, I thought I would be able to de-stress by talking to Ed. But it actually ended up making me more stressed because he was bringing up the whole communication thing and it just gets me a bit annoyed because I have to come to terms with the fact that I'm not super talkative. I mean, clear communication is important, but I'd rather not feel obligated to talk to EVERYBODY 24/7 if you know what I mean. Like I didn't know I had to check in on you every day. I only have so much time and energy you know! Let me recharge first and then we can talk. And it's like I'm the weird one for not wanting to be around people all the time?? Listen, I know some people are extroverts but that doesn't give you the right to say what is and isn't conventional. Plus, why do people think this is bad if it's only for a little bit? OH NO HE'S GOING TO BE ALONE FOR A LITTLE BIT I HOPE HE'LL BE OKAY. I haven't had an entire day of being alone since well, last summer. But back then I didn't really embrace the alone time. It was more like here we go again. Another day with no one to hang out with 🙃. You know what bruh? Who gave people the right to say being by yourself for some time is not allowed? What if I want to be alone for a little bit? Is it a crime?? Do I have to socialize every single second of the day? Also who says you need to have fifty friends back at home. What if it's just my place to reflect on my life and spend time with family?
+
+This makes me appreciate the time on campus learning alone much more because I don't have to answer any bothersome inquiries about what I'm doing (I KNOW RIGHT?? LIKE I'LL BE READING A BOOK AND THAT'S WHAT THEY ASK??? Hmmm, it could be any number of things.... ISN'T IT OBVIOUS????).
+It's really a shame that the library doesn't open earlier though. Being with people a lot, you start to notice certain things that rub you the wrong way. Like hearing Bryan yelling into a mic about his teammates' performance. Because I definitely need more of that in my life. And he'll just respond to a passing comment I make like I wasn't talking to you bruh, I'm just mad I missed this railgun shot. How would you like it if everytime you say something into the mic I asked for the exact logical reason for it? First of all, I won't do that because I simply do not care enough about overwatch or whatever and second of all, you think I have time for that?? I would need to be extremely bored to start talking about all that.
+
+Right now, I can think, uninterrupted about many different things. I can close my eyes and pretend for a little bit, that I'm in my own little world where people can't bother me. The silence...it's beautiful. Music to my ears. Ahhhh. One awesome thing about college is that there aren't really cliques and stuff on campus. Walk alone, eat alone, take the bus alone, go to class alone. You can do many things alone without people looking at you funny. It's even better if you're a dude because people don't usually go up to you and start conversations.
