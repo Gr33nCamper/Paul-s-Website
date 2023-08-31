@@ -1,4 +1,4 @@
-[WNTR: JAN](https://gr33ncamper.github.io/Paul-s-Website/YRS/2023/WNTR/index)
+[JAN](https://gr33ncamper.github.io/Paul-s-Website/YRS/2023/JAN)
 
 [SUM: JUL, AUG](https://gr33ncamper.github.io/Paul-s-Website/YRS/2023/SUM/index)
 
