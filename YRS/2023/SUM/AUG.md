@@ -1076,6 +1076,14 @@ Also it's so funny to me when people try to pretend like they were SUPER product
 
 Hypothetically if I were to return, I'd make it my goal to spend as little time as possible in the house on a screen. In fact, I'd probably just go to the Fremont Main Library since it's close to Lake Elizabeth and I've never been there to just work on stuff. What time does it open? 10A EARLIEST??? CMON BRUH. Okay, but it's not that bad if I'm... ok nah actually it probably is. Even though I can focus on reading or writing in my journal or prayer in the privacy of my own home in the early hours, there's also going to be a very real temptation to gratify my impure thoughts or even watch - I'm going to say it just so you know what I mean and that it doesn't stay as some shadowy unnamed thing - pornography. Last summer I thought I would feel more alive and happy after rubbing one out in the garage but during the experience, I was super worried about getting caught and felt guilty. I felt super empty after and when I was cleaning myself up in the shower, it just felt like well, if that was the highlight of my day, this day isn't looking so bright. And then I'd try to make up for that by trying to be productive but it didn't really work and I could never fully forget that I did that dirty deed. So many times, I'd promise myself that THIS would be the last time. But that was a lie, since I'd go right back and say okay okay for real this time is the FINAL FINAL FINAL TIME we will do this. I've learned to not take my own word for it anymore, since that promise is an empty one. Since I kept believing the claim that I would stop eventually and there would be a final day, it did not have to be today which I would have to stop, so I thought it wouldn't matter if I enjoyed myself today since it was going to end someday anyways. But you see, according to John 8:34 (ESV), "...everyone who practices sin is a slave to sin". Each day I gave in, I was making it easier to give in (and harder to resist) tomorrow. The easier it became to give in (equivalently, the harder it became to resist), the less likely I was to stop. So this false promise led to much more sin, rather than a gradual decrease and cessation of it.
 
+-----------------------------------------------------------------------------------------------------------------------------------------------
+
+Guess who unfriended me on Discord??? CASPER!! GOODBYE!!!! YES, AT LAST. I NOTICE U CHANGED UR PFP. NICE!!!! STILL INTO ANIME? THAT'S A RIOT. YOU KNOW, IT'S SO FUNNY THAT I THOUGHT WE WOULD BOND OVER THIS. I'M GLAD IT WAS JUST A PHASE BC I HATE TV SHOWS ANYWAYS.
+
+But seriously though, it would have been interesting to see my old messages. Or would it be too painful? 
+
+Anyways I need to program now 
+
 &nbsp;
 
 &nbsp;
