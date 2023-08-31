@@ -1025,3 +1025,61 @@ Right now, I can think, uninterrupted about many different things. I can close m
 &nbsp;
 
 &nbsp;
+
+**Aug 28, 2023:**
+
+(Note: I've decided to write in prose instead of a new line for every sentence bc that takes up too much space)
+
+Wow, one whole day w/o seeing people in the apt. AMAZING. Not having to be bothered with requests and other pesky/obvious (to me) inquiries is a rare treat. One thing that isn't so fun about being on campus however is that the food options are beginning to get old. I don't know how much longer I can eat TapEx and BK for. Guess it might be time to branch out to some Santorini omelette and Subway and Blue Pepper or stuff from home.
+
+Spent too long in PC Theater area watching YouTube. Don't get me wrong, some videos were actually wholesome but then things took a darker turn when I signed out of my normal account to view some...other stuff. Should have only watched one video around 30m long. The thing is, the shorter videos aren't as satisfying so you have to watch more of them and you underestimate the time you've spent so you're like, that was only 5 min, we got time. But what ends up happening is that a bunch of short videos eventually add up to more than the 30m "super long" videos you were avoiding. So in trying to save time, it ends up accomplishing the exact opposite.
+
+Is August really ending on Thursday??? Anyways I'm heading to bed bc there's a lot more that could be said about the weekend adventure but I need to make up for lost/wasted time or else there will be a perpetual lagging distance that I have, whether that's being behind on lectures, hw, PAs, sleep, exercise, etc. But sleep is the foundation for all the other stuff bc if you're behind on sleep, then all the other stuff gets dragged away with it.
+
+One last thing: although I was feeling a bit disillusioned with Fremont and life last summer and feeling super empty inside with a lack of fulfillment, one of the good things about that experience was that it's why I currently don't feel the need to return home SUPER often (like seriously what's the big deal about returning home when it's not during the major holidays or for some emergency? Haven't you lived there at least a decade at this point??? What do you think changed and what do you think is waiting for you there? Are you suddenly going to have an awesome time with your old high school buddies? Hang out with a bunch of awesome new people? Talk about super meaningful life stuff? No, of course not! As much as I would like to believe otherwise. But, you protest, this is not so for the wahman. To that, I say, the wahman is much more social and they tend to gain more friends throughout life. Thus, I know the wahman will often like hanging out with her friends from back in the day but for guys, it's not that simple. I literally have no genuine friends who are willing to hang out often besides Ed. Drifted apart from high school friends, haven't talked to HOC3 church people in years, Rohan is busy all the time, and it's just not worth the effort trying to start new friendships in a place where you're only present at most a month or two out of the year. Long distance relationships aren't really my thing bc like I said, I hate having to explain so much stuff to provide context only for the other person to not even care like ok whatever man. And I hate texting casually bc there's literally no point if it's not about something that's going to happen soon irl. And then there's the recent phenomenon I noticed where you kind of need some space from people you live with to collect your thoughts and really think about life and just recharge in general. Or maybe that's just me. Some people hate being alone and think they have to be with someone every waking moment of the day. Which is pretty ridiculous if you ask me since idk, don't you have those interests or tendencies of yours that are so esoteric that literally nobody else would completely understand? I'll give you some examples: I used to be super into clothes and "drip" and admittedly, part of me today wouldn't mind getting a large trench coat and boots and a silver wig and headscarf. As of now, I'm more into becoming a more learned person, so understanding stuff from American history, literature, and culture, particularly from the 19th century. Also classical stuff like Latin and philosophy. I'm also trying to refine my choices of entertainment so towards becoming a thinker/philosopher, I'd want to watch operas or go to symphonies and peruse art galleries. Then there's stuff like watching old black and white films and musicals and reading newspapers or listening to radio broadcasts which is stuff from the 20th century. Oh! Also penning letters / keeping journals about life.
+
+And what if you want to reflect on your life and stuff? You're gonna do that with someone looking over your shoulder? Personally I find I can think best when I'm alone. But not for too long! Otherwise I start losing my sanity. So if I'm suffering through hw or studying, I would like to be around other people at, for example, the Geisel table. But if it's just a peaceful solo activity, then there's really no need for that many people around. I don't want to have to explain every little thing I'm doing bc to do so would take too long and also it's not relevant. What may appear strange to you, is actually quite natural for me and also I'm the one thinking to myself so it's really to help myself in a way, not to entertain you
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 30, 2023:**
+
+Happy 21st Bday to Gideon 🎂!!!
+
+The group chat was sufficiently spammed and we got a decent number of signatures on the card, though the card was deemed questionable by Trip since Bryan thinks certain things are super funny 🙄. It was about how the birthday person is older than dirt and that's somehow a dirty joke. AHAHAHAHAHAHAHAH THAT'S SO FUNNY RIGHT GUYS???? /s. In-N-Out provided by Trip and we played some board games before I headed off to cs101 lecture
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Aug 31, 2023:**
+
+(continuation of "yesterday's entry" but really it's just what I wrote today that fits ystrdy better)
+
+He's the only guy I know who feels the need to return home every month since June (I KNOW, THAT'S WHAT I'M SAYING BRUH! WHAT'S SO URGENT THAT U NEED TO GO BACK THAT OFTEN?) I mean, Ryan also went back home more than once this summer but it's like, that's understandable. Also he doesn't live that far away and his absence doesn't really impact the apartment in a super bad way. Meanwhile, if Gideon leaves, it's like we have to arrange all this transportation in advance and sometimes have to take the bus. And the driver doesn't even arrange rides for the apartment like you're gonna just leave without doing any of that? You know the only reason we need to ask for rides is because YOU'RE not here right?? Don't just leave us with a problem, try to mitigate it and foresee how we might be affected by it!
+
+But I guess it could be worse. At least he's not just talking to me about necessary stuff but otherwise being coldly distant or being too loud and inconsiderate on Discord at night like a former roommate. One problem about me confronting Casper about stuff was that I don't think my concerns were taken seriously bc there was no one else to back me up. So if I say something like, yo can you clean the pan better next time? And he's like it's already 90% clean, isn't that good enough? Like come on man, it's not that much more work. You lazybones! I guess he just thought I was being too petty or overreacting, but bro, were my concerns that biased? Were my expectations unreasonable? Come, let's reason together. But ofc, you'd rather just play League huh? I'm not mad, just disappointed.
+
+I wonder if I'm the only one that's chosen to stay in SD this summer. Some people stay bc they have nowhere else to go. I can book a flight back anytime, but I choose not to. There's not that much I can do at home other than reflect because family dinners or activities make up a comically small fraction of my actual time there. But personally, I'm just over home and want to avoid seeing some people for a while and not visit places that are only relics of my past, not places where I can really grow, just rest a little. Fremont is where random short episodes happen. But the real movie is in San Diego. That is, if you weren't there to see the movie, then you wouldn't understand all the context. It's still hard not to be slightly bitter about the lack of initiative/interest exhibited by my old high school friends but whatever, time really tells who is real and who isn't. 
+
+Also it's so funny to me when people try to pretend like they were SUPER productive at home but we all know they were probably just watching YouTube and chilling for like 90% of the time there. And the "family time" was probably just like one or two conversations. At least that's what it's like for me. Most of the time when I go with a list of stuff to do, half of it doesn't even get done but maybe that's because I'm overly ambitious/imaginative. Next time I'm thinking I'll just do some cleaning around the house since that's the right thing to do and we Christians are called to serve others. How much more our families?
+
+Hypothetically if I were to return, I'd make it my goal to spend as little time as possible in the house on a screen. In fact, I'd probably just go to the Fremont Main Library since it's close to Lake Elizabeth and I've never been there to just work on stuff. What time does it open? 10A EARLIEST??? CMON BRUH. Okay, but it's not that bad if I'm... ok nah actually it probably is. Even though I can focus on reading or writing in my journal or prayer in the privacy of my own home in the early hours, there's also going to be a very real temptation to gratify my impure thoughts or even watch - I'm going to say it just so you know what I mean and that it doesn't stay as some shadowy unnamed thing - pornography. Last summer I thought I would feel more alive and happy after rubbing one out in the garage but during the experience, I was super worried about getting caught and felt guilty. I felt super empty after and when I was cleaning myself up in the shower, it just felt like well, if that was the highlight of my day, this day isn't looking so bright. And then I'd try to make up for that by trying to be productive but it didn't really work and I could never fully forget that I did that dirty deed. So many times, I'd promise myself that THIS would be the last time. But that was a lie, since I'd go right back and say okay okay for real this time is the FINAL FINAL FINAL TIME we will do this. I've learned to not take my own word for it anymore, since that promise is an empty one. Since I kept believing the claim that I would stop eventually and there would be a final day, it did not have to be today which I would have to stop, so I thought it wouldn't matter if I enjoyed myself today since it was going to end someday anyways. But you see, according to John 8:34 (ESV), "...everyone who practices sin is a slave to sin". Each day I gave in, I was making it easier to give in (and harder to resist) tomorrow. The easier it became to give in (equivalently, the harder it became to resist), the less likely I was to stop. So this false promise led to much more sin, rather than a gradual decrease and cessation of it.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
