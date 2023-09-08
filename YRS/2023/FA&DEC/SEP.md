@@ -111,6 +111,16 @@ I used to think it was so unfair that I had to grow up and actually take on more
 
 **Sep 07, 2023:**
 
+Last night's conversation with Ed told me that sometimes it's alright to take a break from people. I find it super boring to hear about another dude's romantic relationship because it's like, who cares you know? I didn't call you to hear about every little detail about Syndy. Although you might think that's the most interesting thing in the world, I have ZERO interest in any of that. And you wonder why I like talking to cameras and journals and personal websites more than people? Or maybe I just dislike talking to people who are in love because it's like nobody asked to know what's going on in your relationship. Personally, relationships are important but at the same time, I also find that what you do alone or your routine is not trivial either. You need both, but as of now, it's like there's not even that many people to talk to in SD bc a lot of people left. Guess that'll change in a few weeks.
+
+The good thing is that this summer, I learned more independence and realized that communicating with God is more reliable than depending solely on the church because literally every other week or so someone else leaves. It's very volatile, so at that point, I'd rather just do some stuff on my own and think about life and talk to you guys about stuff that won't raise like 50 billion questions that I don't feel like answering since I hate having to give so much context to someone who doesn't even know me like that or doesn't care to hear. But it's different here. I can express fully what I think. And it's okay if the reader doesn't want to read all this. A future reader can just skip over this part if they're not that interested. Mainly, it's to get my thoughts down. My willingness to give context is roughly proportional to how often I see someone but I guess there's a drop off at some point and when I'm short on time then even if I know someone well, I won't feel like giving them my whole life story and stuff. Also you only realize certain things looking back when you get older and more mature that you won't recognize at the moment, even though it's so close to the present.
+
+Fish stew was alright
+
+Watched some stand-up comedy and learned about learning strategies
+
+Alright, back to programming
+
 &nbsp; 
 
 &nbsp;
