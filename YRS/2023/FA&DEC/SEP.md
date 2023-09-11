@@ -131,6 +131,8 @@ Alright, back to programming
 
 **Sep 08, 2023:**
 
+I realized M103B is more aptly described as ring/field/galois theory than just modern or abstract algebra. Anyways, somebody fr walked out of the final in the first 20 min so either they knew everything or they knew nothing. Also most people left within an hour. I spent two hours just to be safe. Messed up on the power tower problem for sure though because I thought it was calculated top-down instead of from the ground up. 
+
 &nbsp; 
 
 &nbsp;
@@ -140,6 +142,10 @@ Alright, back to programming
 &nbsp;
 
 **Sep 09, 2023:**
+
+Hardest final of the yr so far. 
+
+Also that simplex program was not as simple as it looked
 
 &nbsp; 
 
@@ -151,6 +157,12 @@ Alright, back to programming
 
 **Sep 10, 2023:**
 
+Happy 21 nayR! 🎂
+
+Everything got offset by Labor Day so today felt like Saturday 
+
+I like SDSU's campus. It's nice to have a change of location. Today was quite humid though, almost felt like I stepped off the plane in Chengdu. Sichuan is more humid but this was not very comfortable either. Thankfully there was AC so it wasn't unbearable. But now I wonder how people did it back in the days before AC. Did they just dig underground? In fact, simply for that reason, I'd be less eager to visit the 1800s since that's way before AC. 
+
 &nbsp; 
 
 &nbsp;
@@ -160,6 +172,14 @@ Alright, back to programming
 &nbsp;
 
 **Sep 11, 2023:**
+
+[......]
+
+A moment of silence
+
+Ed was telling me there is some evidence to suggest that 9/11 may have been an inside job but either way the fault is on the US. Also how George W. Bush is the worst president ever bc of the Iraq war.
+
+Too dang hot bruh. I'm not complaining if LR gets too cold in the winter. If it's only warm rn because it's poorly insulated, then it will be freezing once it gets cold. I handle slightly chilly better than uncomfortably warm. Last year it was the opposite and I don't know why. Thankfully this year there was no horrendous heat wave. Maybe it's my NorCal skin. Whoever thought of using engines to dump heat out instead of only to use toward work is awesome.
 
 &nbsp; 
 
