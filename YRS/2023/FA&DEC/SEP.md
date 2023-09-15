@@ -191,6 +191,10 @@ Too dang hot bruh. I'm not complaining if LR gets too cold in the winter. If it'
 
 **Sep 12, 2023:**
 
+Went hiking at Dixon Lake
+
+First prayer meeting since early Aug
+
 &nbsp; 
 
 &nbsp;
@@ -202,6 +206,24 @@ Too dang hot bruh. I'm not complaining if LR gets too cold in the winter. If it'
 **Sep 13, 2023:
 (JR YR RETURN FLIGHT)**
 
+This guy Ed really didn't say nothing about the birthday wishes.. ok bruh
+
+-
+
+Went to Viewridge
+
+Ate Korean food for lunch on Convoy
+
+Did some apt cleaning
+
+went to Encinatas to bike along the beach
+
+Ate some leftover tomato egg stirfry for dinner
+
+headed out for movie night with Sebastian
+
+_Kindergarten Cop_ was quite funny and I like the 90s style, not just for the nice outfits but also the lack of super "woke" stuff like making everything about freedom of self-expression and "everyone's a winner" and stuff like that. The critic reviews say it's meh but come on bruh, I'm not from the 90s so for me it was entertaining for a movie night. I didn't need it to have an awesome shelf life to enjoy. I was there for lighthearted humor and didn't want to watch anything R-rated. It wasn't an in-depth film analysis bruh. Also the setting in Astoria, Oregon was quite nice because they have so many beautiful evergreen trees like fir, pine, and hemlock so one day I'd like to visit Oregon. 
+
 &nbsp; 
 
 &nbsp;
@@ -211,6 +233,20 @@ Too dang hot bruh. I'm not complaining if LR gets too cold in the winter. If it'
 &nbsp;
 
 **Sep 14, 2023:**
+
+Longest day
+
+Woke up around 8:30 in the morning for the Bear Ridge trail hike, didn't go to bed until almost 6a the next day
+
+Hike was awesome and it was good to have Ahmed there to liven up conversation (compared to if it was only Sebastian and I) and also clarify what we believe as Christians. Visited this place called Bates Nut Farm and I was loving the whole atmosphere since fall is approaching so the pumpkin patch and autumn-themed wares in the store were super awesome. Fall is my fav season and I think we're gonna have to come back in the fall.
+
+Ate at Fat Ivor's Rib Rack, super stuffed. Our waitress was named Kat, and she was really nice. She was telling us about how Valley Center is "country" but not as much as before since there's been new housing development and also how there's not many attractions besides the Bates Nut Farm. Many people will just go to other nearby cities with more stuff to do (But if you ask me, it looks quite beautiful so I enjoyed hiking out there and seeing more trees) She said there's only one high school for the whole town so everyone knows who's around their age. She majored in history and graduated like 10 years ago so she was in her early 30s.
+
+Got some Salt & Straw ice cream afterward. I picked the fall exclusive flavors: Pumpkin Spiced Tiramisu and the Beecher’s Cheese w/ Apple Pie Cinnamon Rolls scoops
+
+Ahmed dropped me off at LR and I took a quick shower
+
+Bros potluck began shortly after and we made "communist" fried rice since everyone contributed something to the one dish. Started off kinda slow but later on we loosened up and it got more energetic. I left shortly after dinner to help Trip move some stuff from Enders but it was pretty quick, in and out within an hour. Got back in time to watch some Ip-man. I know I watched it back in high school, but this time around I think I was more engaged with the story and since it's my culture and I can understand what the northern guy was saying, there was more personal significance. Seeing how China was like during WWII when Japan invaded, I can see why some older folks from China dislike the Japanese and it's crazy how they went from military power to super peaceful today like whoa what happened? I'm glad they've changed but at the same time, it's still disappointing that some people are so willing to write off Japan's past grievances in the war just bc they like the cool tech and infrastructure and anime of modern Japan. Forgive, but we shouldn't forget history, since that explains the state of the world today. Similarly, we shouldn't forget our pasts since that explains things about us today. I think it's valuable to reflect on our pasts, but we shouldn't get stuck in the past bc that makes your current life stale and you can't move forward. We can only live in the present, the past cannot be re-lived, only remembered
 
 &nbsp; 
 
