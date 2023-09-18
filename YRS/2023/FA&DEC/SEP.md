@@ -258,6 +258,14 @@ Bros potluck began shortly after and we made "communist" fried rice since everyo
 
 **Sep 15, 2023:**
 
+Short day
+
+Got up after 12 bc of last night's antics
+
+Swept away by a BiliBili tangent (I've deleted the app) and barely finished DT
+
+Old apt minus Bryan sent Gideon off to the airport
+
 &nbsp; 
 
 &nbsp;
@@ -270,6 +278,20 @@ Bros potluck began shortly after and we made "communist" fried rice since everyo
 
 **Sep 16, 2023:**
 
+Long day pt 3
+
+Didn't get more than 5 hr 20 min of sleep, but I didn't have a sip of joe
+
+Carpool with the Moores
+
+Prayer walk 8:30a and then we didn't end until like 11p
+
+SET retreat was no joke, dozed off multiple times in the second session. Chewed so much gum that my jaw hurt.
+
+Visited Miramar ceremony, felt somber but also it was quite inspiring.
+
+Played some ping pong and had an ice cream cookie sandwich.
+
 &nbsp; 
 
 &nbsp;
@@ -279,6 +301,16 @@ Bros potluck began shortly after and we made "communist" fried rice since everyo
 &nbsp;
 
 **Sep 17, 2023:**
+
+Sorta long day
+
+Hibernated 11 hrs, got decent rest
+
+drove to SWS with Tobi and Steve, did a short tour for SDSU then went to VR for the final SET retreat session
+
+Now it's just like I need some alone time to recharge so I'll get up earlier tmrw since sleep doesn't count as alone time and when else will I get that recharge time? Might lose my sanity and patience if I don't do that. I just wanna sit in the park in silence and listen to birds. Also maybe listen to some music. I took that for granted when I was still in SS2. Been at VR so much the past few days. Might lose my sanity if I'm there any longer than I have to because even though it's nice, it's also much smaller than Geisel so it's very easy to lose your sanity if you're there too long. And the ceiling is quite low. At least it isn't stuffy. In fact, it gets a bit chilly.
+
+Shoot, just remembered we're actually going to La Mesa college to do outreach tmrw. How fun!!
 
 &nbsp; 
 
