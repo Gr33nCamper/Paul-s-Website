@@ -322,6 +322,13 @@ Shoot, just remembered we're actually going to La Mesa college to do outreach tm
 
 **Sep 18, 2023:
 (SOPH YR ARRIVAL DAY)**
+
+It was raining in the morning
+
+Prayer walk on campus
+
+First day as Kim Soo Won's photographer
+
 &nbsp; 
 
 &nbsp;
@@ -332,6 +339,12 @@ Shoot, just remembered we're actually going to La Mesa college to do outreach tm
 
 **Sep 19, 2023:**
 
+La Mesa outreach, met young CS professor
+
+Ping pong smackdown got a little more intense than I thought it would get
+
+Refueled the Prius V after Pryr Mtg
+
 &nbsp; 
 
 &nbsp;
@@ -341,6 +354,13 @@ Shoot, just remembered we're actually going to La Mesa college to do outreach tm
 &nbsp;
 
 **Sep 20, 2023:**
+
+First day of rest since last week. 
+
+Stats/probability tutoring didn't take too long, and there was also breakfast provided so I was like aw heck yeah that's super nice! And the prep book didn't ask about super advanced stuff like Bayes' Theorem and Binomial, poisson, geometric, exponential, etc distributions and random variables and variances or proving any of the theorems or propositions such as P(A^c) = 1 - P(A). The concepts were pretty simple so like how P(A ∪ B) = P(A) + P(B) <=> A and B are mutually exclusive but if there's some overlap, then you have to use P(A ∪ B) = P(A) + P(B) - P(A ∩ B) so you don't double count.
+
+After walking in the park, I spent some time in the library. Did DT, prayed, and learned about Chinese culture.
+Enjoyed learning more about the Sichuanese language (my culture) from YouTube and stuff but at the same time, there's not a lot of longform content on Bili Bili in general, even on the website and some stuff is poorly dubbed so I wish I could just talk to people on the street or listen to some Sichuanese podcasts.
 
 &nbsp; 
 
