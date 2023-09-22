@@ -372,6 +372,14 @@ Enjoyed learning more about the Sichuanese language (my culture) from YouTube an
 
 **Sep 21, 2023:**
 
+Woken up by the sounds of powerwashing
+
+Beautiful scenery in Rose canyon and some trees are even changing color
+
+Kimchi pasta was delicious, also got a lot of food after practice like somi somi, vallarta's fries, and 85ºC
+
+Final day of skit practice. We all improved a lot since day 1. I like that I only have a minor role to play because there aren't too many lines to memorize and also it relieves some pressure for a starting role. I'd rather not be in the limelight, since the focus is on the gospel message and also it's kind of awkward to talk to people after the performance when you were a major character. Or maybe I'm overthinking it and all you have to do is act natural and not bring up the performance at all, since it's already self-evident you acted. I don't have to go dead silent, just talk about other stuff.
+
 &nbsp; 
 
 &nbsp;
@@ -381,6 +389,8 @@ Enjoyed learning more about the Sichuanese language (my culture) from YouTube an
 &nbsp;
 
 **Sep 22, 2023:**
+
+No longer in the hole for sleep debt, awesome!! The hard part is gonna be getting the curve to converge to the y = 0.0 line so no debt or credit, just enough sleep 
 
 &nbsp; 
 
