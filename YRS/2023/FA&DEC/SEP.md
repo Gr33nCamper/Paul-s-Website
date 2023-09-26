@@ -390,7 +390,9 @@ Final day of skit practice. We all improved a lot since day 1. I like that I onl
 
 **Sep 22, 2023:**
 
-No longer in the hole for sleep debt, awesome!! The hard part is gonna be getting the curve to converge to the y = 0.0 line so no debt or credit, just enough sleep 
+No longer in the hole for sleep debt, awesome!! The hard part is gonna be getting the curve to converge to the y = 0.0 line so no debt or credit, just enough sleep
+
+Team dinner at the Ko residence.
 
 &nbsp; 
 
@@ -404,6 +406,8 @@ No longer in the hole for sleep debt, awesome!! The hard part is gonna be gettin
 
 AUTUMNAL EQUINOX 🍁
 
+Sebastian and I volunteered at Mission Trails. Ranger Julie was quite encouraging. Checked out the station and went to praise practice in the evening. Josh Yang returned and sent me home from VR. Stayed up super late playing Desert Survival board game but it was fun to work together towards a common goal instead of getting super angry when some guy pulls a d move on you or something.
+
 &nbsp; 
 
 &nbsp;
@@ -414,6 +418,8 @@ AUTUMNAL EQUINOX 🍁
 
 **Sep 24, 2023:**
 
+First SWS of the year. Some people returned. New faces. Seniors shared about their first week of college. This feels unreal even though I'm living it. It's all going by so quickly. Later in the day it was sports. TJ and I got swept in spikeball by this dude named Albert. It's hard reaching out to groups of guys because you have to be like "Hi what's your name?" to like 5 guys in succession and you already know you're probably not gonna remember any of their names after that.
+
 &nbsp; 
 
 &nbsp;
@@ -423,6 +429,14 @@ AUTUMNAL EQUINOX 🍁
 &nbsp;
 
 **Sep 25, 2023:**
+
+McDonald's in the evenings is becoming a pattern. Last night some random guy was cursing up a storm and it was painfully awkward sitting through the whole thing.
+
+Might need to spend time alone reflecting on whether I'm serving with the proper heart posture and also highkey thinking I might crack under the responsibility of being a senior if I don't pray for help about this. Like I'm just super worried about getting called out for something since I doubt my abilities too much and don't think I can contribute anything of value to a conversation when there's already a bunch of other older folks talking. But maybe I need to act as if I'm not afraid of rejection to be a better leader. Or just agree with criticism for fun and see if it actually goes away as Richard Carlson claims. Maybe I'm just acting too stiff and need to loosen up. I know Welcome Week is serious but you don't have to be somber the whole time. These journaling opportunities are much more precious when there's actual emotions I need to express and stuff on my mind. I mean, the casual stuff is cool, but really the primary purpose is not meant for just recording data and what happened. I mean, sometimes it's important. Some items or numbers have a special significance. Like 23 since it's 2023 or 20 since that's the day I was born. To be honest though, 2 is my favorite prime number since it's the smallest one. But I like 1 a lot also since it's the universal divisor. My fav real number is π though. I like cosine better than sine.
+
+But as I was saying, it's not as helpful for myself when it's just recording regular stuff like having meals or going places. I mean, that's cool but what's more valuable is recording my thoughts and emotions. So stuff like feeling out of place at the In N Out social because everyone else seems to be talking and then I'm alone but I'm still super reluctant to approach new people unless they're alone and I have an irrational fear that I'm gonna get the heck roasted out of me. You know what? Forget all that, I already told myself I wanted to embrace awkwardness as long as it's for getting to know people. Why am I still so scared? Also the topic was brought up about how I don't talk that often and then I said how much I talk is heavily dependent on what we're talking about. I should have just been super honest and said I like talking about stuff like 19th century history and American literature during that time. And if it's during the school year, math and science more just to keep it in my mind and since that was what we did in high school. I used to be much more of a nerd about this stuff and bring it into casual conversation but now it's just weird like it's my job but I'm not always in work mode you know. Oh! I just remembered something else I like talking about: nature and animals. Also trees and fall colors. I like all things natural actually. There's certainly a connection between certain cultures and the land and flora/fauna found there. For example, my parents are from Sichuan and pandas are native to that region of China so they are special to me. And I like to think about deeper topics and ponder things about life like how time is not like money bc we can never get more than what we have. It's also fun to talk about memes or stuff back in the day like the grilled cheese sandwiches in a bag for lunch and blasting tanks in TO in jr high feeling like I was a real war vet in Europe, walking back home from school and smelling Indian food cooking. I like calculus a lot still, especially integrals and infinite series and Taylor polynomials. Polar and spherical coordinates are also cool bc of how useful they are for dealing with circles or spheres. Tbh I don't really like the distance formula in Cartesian and prefer dealing with angles instead of x and y displacements. Programming is pretty fun, albeit frustrating when the program isn't doing what you want it to and you spend super long trying to figure out what's bugging it. Fables and ancient wisdom also catch my fancy since I find it much more illustrative to hear a story with a lesson instead of just being told the lesson. Vocabulary actually undergirds a lot of my humor and personality since I tend to use words or phrases that aren't ordinarily used such as rascality, skedaddle, "My wig!", you scoundrel!, confound it!, and I'll sometimes do what I like to call precision politeness mode where I'll talk in very brief phrases and smile a lot more. It reminds me of firing well-aimed railgun shots around walls in TO. But then there's also my well-known catchphrases which change with the season. Some I currently use include: "Aw cmon bruh", "For REAL", "It's time to get serious", "Oh so you're gonna play like THAT?", "It's wonderfully cool", "I'm absolutely famished!", "Yeah right!", "What the heck?", "SIT DOWN SON".
+
+Ok that's all for now. 
 
 &nbsp; 
 
