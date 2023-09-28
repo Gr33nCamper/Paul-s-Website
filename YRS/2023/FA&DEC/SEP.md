@@ -448,6 +448,10 @@ Ok that's all for now.
 
 **Sep 26, 2023:**
 
+I ended up painting a tote bag based on the fall foliage pic I took in Indiana last Oct and people were saying it looked like a Bob Ross painting. I was a little bit embarassed since I didn't expect to get spotlighted and like it so much. Shout out to elementary school art classes at Soho and with Wang laoshi.
+
+We ended WAG activities a bit earlier than usual. Alex drove Ahmed and I back home, took a side quest to get some gas. Gas prices are rising again. I asked Alex about what it's like as a postgrad and apparently there's a membership training but that hasn't happened yet and how the planning meetings are super in-depth. When I confided that I was fearful of the younger ones retaliating and being like "Who the freak are you to tell me what to do???" he said that wouldn't happen bc we respect older ones in the church. So even if someone from c/o 22 asked him to do something, he would do it.
+
 &nbsp; 
 
 &nbsp;
@@ -458,6 +462,14 @@ Ok that's all for now.
 
 **Sep 27, 2023:**
 
+7 hrs is the most sleep I've gotten during welcome week. All the rest were like 5 hrs.
+
+Flyering is what I'm most comfortable with, even though the walk-bys and rejections initially hurt. It's like after a while, you get over it. Or maybe it's that the message is so important that you're willing to get rejected. Also helps that we get to flyer and table together bc it would be much harder to do this solo.
+
+First day working as Triton Transit Mobility driver. Met a guy named Sam and he was showing me the HC route. Pretty funny guy, sophomore from Long Beach. We were talking about the almost full moon that night. I think I'm gonna enjoy my job. Standing up for 5 hrs and working retail? Sorry man, not my thing. And let's be real, who goes to the bookstore for books? There's literally a library!
+
+Rained this morning but then got super sunny so I kind of went overkill with the Columbia rainjacket. Wore it on my walk back home in the evening after my shift though, bc it was a bit chilly and the AC was on full blast in McDonald's.
+
 &nbsp; 
 
 &nbsp;
@@ -467,6 +479,21 @@ Ok that's all for now.
 &nbsp;
 
 **Sep 28, 2023:**
+
+FA23 START
+
+WAIT, HOLD ON. U GUYS SERIOUSLY THOUGHT...?
+WE WERE FINISHED?????
+HECK NAH SON
+
+ONE LIFE
+ONE LAST YR OF UNDERGRAD
+
+NO RESERVES.
+NO RETREAT.
+NO REGRETS.
+
+Earliest I've woken up since Seattle. Not feeling too tired rn and last night's McDonald's was quite a lot so I don't think I need food until maybe lunch. Might need a cup of joe around then also so that its effect lasts through the most important times: the afternoon when there's lecture and also the rest of the day's outreach 
 
 &nbsp; 
 
