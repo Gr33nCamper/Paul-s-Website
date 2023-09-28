@@ -486,14 +486,25 @@ WAIT, HOLD ON. U GUYS SERIOUSLY THOUGHT...?
 WE WERE FINISHED?????
 HECK NAH SON
 
+&nbsp;
+
 ONE LIFE
+
 ONE LAST YR OF UNDERGRAD
 
+&nbsp;
+
 NO RESERVES.
+
 NO RETREAT.
+
 NO REGRETS.
 
-Earliest I've woken up since Seattle. Not feeling too tired rn and last night's McDonald's was quite a lot so I don't think I need food until maybe lunch. Might need a cup of joe around then also so that its effect lasts through the most important times: the afternoon when there's lecture and also the rest of the day's outreach 
+&nbsp;
+
+Earliest I've woken up since Seattle. Not feeling too tired rn and last night's McDonald's was quite a lot so I don't think I need food until maybe lunch. Might need a cup of joe around then also so that its effect lasts through the most important times: the afternoon when there's lecture and also the rest of the day's outreach
+
+Driving carts around makes for excellent amusement! The joy I felt while conversing with passengers and maneuvering across campus with turns of the steering wheel and presses of the pedals are beyond my ability to describe in words.
 
 &nbsp; 
 
@@ -505,7 +516,7 @@ Earliest I've woken up since Seattle. Not feeling too tired rn and last night's 
 
 **Sep 29, 2023:**
 
-MID-AUTUMN FESTIVAL 🌕
+MID-AUTUMN FESTIVAL 🌕🥮
 
 &nbsp; 
 
