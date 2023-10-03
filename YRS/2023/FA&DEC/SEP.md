@@ -518,6 +518,10 @@ Driving carts around makes for excellent amusement! The joy I felt while convers
 
 MID-AUTUMN FESTIVAL 🌕🥮
 
+Ed arrived. Didn't miss any lectures. Got some Taiwanese mooncakes which cost less than $20. Aw yeah!
+
+1 yr since I watched the _Avatar_ re-release at AMC La Jolla alone. Super peaceful and I was tearing up bc of the nature. Although I guess I was thinking about M140A proofs a little bit in the back of my head. Ed probably has more to say about how the message is about war and how it's always about taking resources. But as a soldier of Christ, I shouldn't get bogged down in civilian affairs. I know he would disagree, but there's more important things in life than human conflicts and politics. 
+
 &nbsp; 
 
 &nbsp;
@@ -527,6 +531,10 @@ MID-AUTUMN FESTIVAL 🌕🥮
 &nbsp;
 
 **Sep 30, 2023:**
+
+Got a little angry over a joke by Cindy, Ed almost left for a rave. I feel like crap for that. But it also hurts that he described me as acting like a f***ing child. I mean, I wouldn't put it that way, but I could have handled it a lot differently. Also not to be rude, but if you call yourself a humanities expert, I hardly think cussing demonstrates the refined vocabulary of a skilled writer. Not doing yourself any favors pal. Just my thoughts.
+
+Training was great! We got free hot dogs and burgers. Invited Sam to Welcome Night
 
 &nbsp; 
 
