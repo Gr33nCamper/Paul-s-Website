@@ -24,42 +24,79 @@ Music is excellent for calming down.
 Speaking of which, here's a short freestyle I wrote on Sunday before Welcome Night, plus a few new lines. It's called "Ballroom Improvisation" and is meant to be rapped over the beat of another improvisation associated with a horizontal platform ;)
 
 PC Ballroom going volcanic
+
 PC Ballroom going (what?)
+
 PC Ballroom going volcanic
 
+&nbsp;
+
 First scene exit on the right
+
 Last scene eve of Christmas, white
+
 Last night got into a fight
+
 My homie almost took flight
+
 'pologies set things alright
+
 Certain truths were brought to light
 
+&nbsp;
+
 Lots of people over here
+
 Excitement, it fills the air
+
 Faces look familiar
+
 Talk to people, yes we care
+
 I'm not perfect sin ain't fair
 
+&nbsp;
+
 Bro think he know everything
+
 Books stacked up right on the shelf
+
 Closes mind, relies on self
+
 Met new girl, they often sing
+
 It's like to him I don't exist
+
 Past follows me, they insist
+
 People change and we move on
+
 Let's remember 'fore it's gone
 
+&nbsp;
+
 Too much pain
+
 Too much fight
-One more day
+
 One more day
 
+One more day
+
+&nbsp;
+
 Too much loss
+
 Too much cost
+
 One more play
+
 One more play
+
+&nbsp;
 
 (end)
 
 Now to dive into the word for some DT
 
+Moods pass, coding got me super focused and thinking again. Ping pong got me wanting to practice my loop and get more consistent with returning the ball
