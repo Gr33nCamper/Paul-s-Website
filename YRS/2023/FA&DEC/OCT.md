@@ -100,3 +100,16 @@ One more play
 Now to dive into the word for some DT
 
 Moods pass, coding got me super focused and thinking again. Ping pong got me wanting to practice my loop and get more consistent with returning the ball
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Oct 03, 2023**
+
+National Taco Day 🌮!!
+(but I ate a fish burrito instead)
