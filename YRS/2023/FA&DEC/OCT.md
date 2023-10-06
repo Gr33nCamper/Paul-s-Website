@@ -109,7 +109,21 @@ Moods pass, coding got me super focused and thinking again. Ping pong got me wan
 
 &nbsp;
 
-**Oct 03, 2023**
+**Oct 04, 2023**
 
 National Taco Day 🌮!!
 (but I ate a fish burrito instead)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Oct 06, 2023**
+
+Some guy was tailing me on the stairs up to Geisel and was still going past the fifth floor. I was taking stairs two at a time and he was still pretty close behind so I was like 😬 come on man, just get off on your floor already. Please!
+
+Okay, time to briefly read Psalms DTfinish Chm142 hw1. In < 2hrs.
