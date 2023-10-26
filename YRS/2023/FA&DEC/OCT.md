@@ -4,7 +4,7 @@ Sometimes when I go to the moon 🌕
 
 I can't help but think about youuuuu 🥲👋
 
-Yes, I know it didn't start at Oct 01, but I'm done with making things so neat and tidy when in reality they're not so clean. Just wanted to get some of my thoughts down undisturbed. I've been feeling a little burned out and stressed since last week. Getting up at 8a is killer. Joe and pastries were practically the only two things getting me through the day other than prayer and being around others. I mean, I hardly got a chance to really be alone and do some of my own stuff without being around others or on the clock. Is it wrong to feel this way? I know we're meant to be the body of Christ and all but does that really equate with being held hostage and not being allowed to leave and go places alone to think? Am I really expected to have infinite energy? I'm so done with putting on an unnatural act and holding myself to an unrealistic standard. It feels like I'm Martha and I'm so busy doing things without really thinking about the purpose behind them. Like even during the Welcome Night, I don't think I really got to connect with many new people and Ed being around didn't make it any easier. Tbh, that's a whole nother thing bc it feels like we're not even that close anymore. He's been acting different ever since he's been hanging around with Syndy and idk if I like that. He's been acting like he's too cool for the old bro stuff and isn't very willing to learn new stuff whether about religion or different viewpoints, but simply assumes that he knows more bc he talks to more people. And even after the gospel skit he was like I already knew Ok bro, yeah we get it. You (think you) know everything. But I guess everybody moves on..
+Yes, I know it didn't start at Oct 01, but I'm done with making things so neat and tidy when in reality they're not so clean. Just wanted to get some of my thoughts down undisturbed. I've been feeling a little burned out and stressed since last week. Getting up at 8a is killer. Joe and pastries were practically the only two things getting me through the day other than prayer and being around others. I mean, I hardly got a chance to really be alone and do some of my own stuff without being around others or on the clock. Is it wrong to feel this way? I know we're meant to be the body of Christ and all but does that really equate with being held hostage and not being allowed to leave and go places alone to think? Am I really expected to have infinite energy? I'm so done with putting on an unnatural act and holding myself to an unrealistic standard. It feels like I'm Martha and I'm so busy doing things without really thinking about the purpose behind them. Like even during the Welcome Night, I don't think I really got to connect with many new people and Ed being around didn't make it any easier. Tbh, that's a whole 'nother thing bc it feels like we're not even that close anymore. He's been acting different ever since he's been hanging around with Syndy and idk if I like that. He's been acting like he's too cool for the old bro stuff and isn't very willing to learn new stuff whether about religion or different viewpoints, but simply assumes that he knows more bc he talks to more people. And even after the gospel skit he was like "I already knew". Ok bro, yeah we get it. You (think you) know everything. But I guess everybody moves on..
 
 Now the apartment situation is like this:
 Ryan's been in a foul mood ever since I told him I've been appointed to join the Geisel council of elders bc he thinks it's strayed too far from its original purpose, but he's been very vague about what that's supposed to mean and I think he expects me to somehow deduce this. Now I like solving problems but come on now, this does not appear so obvious that an explanation is so trivial. It's like in writing if you don't explain your evidence enough, then your reader has to analyze your analysis, meaning your analysis was not very good.
@@ -13,7 +13,7 @@ Bryan's been out of commission since school ended pretty much, not going to many
 
 Gideon has covid, so he's been quarantining since he's returned. He's kind of out of the loop about what happened in the past two weeks. But I'm confident we'll be able to pick up quickly from where we left off.
 
-Then there's also this senior meeting Ryan wants to do where we're getting everyone on the same page. Something tells me this isn't going to be a very fun meeting but will involve awkward confrontations and bringing truth to light. Some people might get a bitter taste of unsweetened coffee. Or maybe these truths will be dipped in so much sugar just to be palatable. 
+Then there's also this senior meeting Ryan wants to do where we're getting everyone on the same page. Something tells me this isn't going to be a very fun meeting but will involve awkward confrontations and bringing truth to light. Some people might get some unsweetened coffee. Or maybe these truths will be dipped in so much sugar just to be palatable. 
 
 Growing up is tough, but man, I didn't think I still had so much growing up to do. Well, if you don't think you need to grow, then you won't do things that will help you grow. Just like if you think everything is exactly as you think it is, you won't be open to hearing new perspectives and changing your viewpoints.
 
@@ -128,7 +128,7 @@ National Taco Day 🌮!!
 
 Some guy was tailing me on the stairs up to Geisel and was still going past the fifth floor. I was taking stairs two at a time and he was still pretty close behind so I was like 😬 come on man, just get off on your floor already. Please!
 
-Okay, time to briefly read Psalms DTfinish Chm142 hw1. In < 2hrs.
+Okay, time to briefly read Psalms DT and finish Chm142 hw1. In < 2hrs.
 
 &nbsp;
 
@@ -189,3 +189,19 @@ This will probably be the last paragraph I write. I'm super famished since I onl
 Well, you probably already know why it's been so long since I've updated (block schedules, hardly any time alone to myself). I mean, even on Sat, I barely got the chance to do a video recording session and think about life before I met up with Sebastian to get IHOP. It was delicious! Especially the super thick French toast, which is actually better than the pancakes imo. Also this guy Sebastian fr goes to bed early af so it's like for late night stuff, it's probably only Ed who's gonna be down for that. I mean, I'm not much of a night owl, but come on bruh, calling 9p late is a little ridiculous. Do you know how long it took for me to make the shift to thinking that 12a is the dead of night instead of early and only getting startled when I saw 2a or later??? And all those times I was playing PvZ or doing math 154 or 142b hw until almost 5a and then had to take naps throughout the day? Sleeping earlier has actually done a lot more for me than getting up earlier, since I know that's what people always suggest in a cliché way, but how do u think you're able to get up earlier if not by retiring to bed sooner? Now, if your schedule is super wonky, then yes you might have to get up ridiculously early and it'll feel like smashing into a concrete wall but that will make you tired enough to fall asleep earlier the next night and voila, back on track assuming you keep that early bedtime.
 
 First time using the wheelchair cart and I must say, it was quite an experience. I thought Pranav was kidding when he said I'd get frustrated by how slow it is, but the darn thing doesn't go any more than 12 mph so I'm like c'mon bruh. Also I had to get help starting the engine and didn't know which one was the new ADA cart. Also Pranav was providing assistance with tightening the straps but I don't think we got it to fully work. My passenger was not as crabby as I was made to believe initially. My shift is over in a minute, so I'll be leaving soon but before that, I'll say that I half considered FaceTime calling Ed in the last half hr but then re-considered bc it's way too likely to run overtime and also I'm not super keen on talking to somebody who thinks they have everything figured out when I barely even got a chance to check in with how I'm feeling you know?
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Oct 26, 2023**
+
+Not that many pickups today, which is great. After 10:50a it's pretty much clear.
+
+So that means I should probably get back to work by then. Also I've been realizing that people don't make skits like they used to. Just look at old CoryxKenshin, KevJumba, Ryan Higa, etc. I'm like cmon bruh. It would be pretty fun to make some random skits this year.
+
+Also remember how in the spring I was super into calculus parodies?? Like Calc's Plan? And one of them included Tino Bassi? That was a weird time haha. Calculus is cool but data structures and modular arithmetic are striking my fancy more these days.
