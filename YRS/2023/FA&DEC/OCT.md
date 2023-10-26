@@ -200,8 +200,10 @@ First time using the wheelchair cart and I must say, it was quite an experience.
 
 **Oct 26, 2023**
 
-Not that many pickups today, which is great. After 10:50a it's pretty much clear.
+Not that many pickups today, which is great. After 10:50a it's pretty much clear. Got a little more than 4 hrs of sleep last night, which is definitely decent, since that's about how much sleep I got per night in Seattle.
 
 So that means I should probably get back to work by then. Also I've been realizing that people don't make skits like they used to. Just look at old CoryxKenshin, KevJumba, Ryan Higa, etc. I'm like cmon bruh. It would be pretty fun to make some random skits this year.
 
 Also remember how in the spring I was super into calculus parodies?? Like Calc's Plan? And one of them included Tino Bassi? That was a weird time haha. Calculus is cool but data structures and modular arithmetic are striking my fancy more these days.
+
+Actually struggling with motivation for studying. Cmon bruh, we gotta keep going. KEEP DA FLAME BURNING!!! 
