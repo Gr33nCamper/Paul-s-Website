@@ -227,3 +227,17 @@ I know exactly what I would have thought if I was sitting there two years ago: "
 I thought it was more valuable to invest in myself and academics, because I knew I wouldn't leave myself in the future and this knowledge would have a use: in college. (Funnily enough, when I was in college, I was no longer as super intense about academics and grades). Friends may leave or completely change up but I wouldn't let myself down. Or so I thought. Understanding all that stuff from class, like calculus or apush didn't really make my life more satisfying in soph yr of college when I was all alone in winter and spring and summer. My life didn't have any really meaningful stuff. I mean, I guess I listened to music religiously but the transition from high school to college was definitely still taking place and I had to shed some immature habits like staying up way too late. I mainly viewed San Diego as just the place where I went to school but my real home was still Fremont (nowadays it's quite the opposite). You can find more evidence of this in the journal entries my 20 year-old self wrote back then. He wasn't doing too well in school and even though he made goals for himself, he kept feeling horrible about not meeting them and also he was crumbling inside and in his interactions with people it was like he didn't want them to see the brokenness but at the same time, it would have been REALLY nice to have someone to tell all that stuff who wouldn't judge or tell him he was a loser or failure. But of course, he didn't believe any such person like that existed. Everyone had it all together while he was falling apart. Nobody really knew what he was going through, so he felt really isolated. I didn't really consider long conversations necessary but a tedious chore to sit through.
 
 This was much longer than I originally anticipated. Time to get to work. Good day!!
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Oct 29, 2023**
+
+The days are passing by so swiftly. I thought covid era every day being exactly the same as the last was bad but this is absurd because even though each day has different stuff, it doesn't feel any longer. Julian? That was already > 2 wks ago. Welcome Night? Almost a month ago. And Fri-Sun feels like just one long day, then BAM it's Mon again. Speaking of which, I'll have to meet up with Dung then at 5p.
+
+Today was Bryan's bday and we celebrated with 120 McNuggets, a double quarter pounder, big mac, two large fries, and special sauces: Mambo and Spicy Jelly. Then we did some Just Dance extreme songs, did Overcooked 2, had people over for cake and quiet place. It was a wild night. 'Nuff said.
