@@ -276,4 +276,4 @@ Halloween Party was spooktacularly alright. Idk, it felt like it was over in lik
 
 People thought I was Ness 🤦‍♂️ #SMH #CmonBruh #UCantBeSerious #DyingInside
 
-I'm sorry I can't be bothered to spend $10 on orange hair wax that I'll never ever use again. Other incorrect answers included orange Waldo, frat boy, Sandlot character, little kid, and guy in early 2000s music video. I guess that's what happens when you wear a costume that unexpectedly was open to interpretation.
+I'm sorry I can't be bothered to spend $10 on orange hair wax that I'll never ever use again. Other incorrect answers included orange Waldo, frat boy, Sandlot character, little kid, and guy in early 2000s music video. I guess that's what happens when you wear a costume that's unintentionally open to interpretation.
