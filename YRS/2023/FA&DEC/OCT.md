@@ -260,4 +260,20 @@ Yeah, I'm definitely feeling drained from the week. Hardly any time to spend alo
 
 Feels like I'm drowning in work 🙃. Postlabs and prelabs, a tricky PA I haven't even started yet. Looks like I'll need some joe this afternoon haha..
 
-It's Halloween Eve bruh. 
+It's Halloween Eve Eve bruh. 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Oct 31, 2023**
+
+Halloween Party was spooktacularly alright. Idk, it felt like it was over in like 5 min. And there were many new faces but idk, this isn't exactly the best environment for getting to know new people bc of all the costumes and I was in easy-going casual mode not relationship building mode.
+
+People thought I was Ness 🤦‍♂️ #SMH #CmonBruh #UCantBeSerious #DyingInside
+
+I'm sorry I can't be bothered to spend $10 on orange hair wax that I'll never ever use again. Other incorrect answers included orange Waldo, frat boy, Sandlot character, little kid, and guy in early 2000s music video. I guess that's what happens when you wear a costume that unexpectedly was open to interpretation.
