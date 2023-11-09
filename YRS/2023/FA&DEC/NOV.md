@@ -42,3 +42,9 @@ Also apparently I have to return to base more frequently if there are long gaps 
 Cold coffee isn't that bad. Especially if it's been sugared reasonably well.
 
 Back to work we go 🙃. Tmrw: Riverside
+
+-
+
+About 30 min left in shift. Let's GOOOOO! Nah, actually these shifts aren't that bad. The remaining tasks are just trying to be productive, after first recording a few thoughts. 
+
+I had an add-in for 12:50 but it wasn't too bad, just from Catalyst to Tioga Hall in Muir. I thought about heading back to base but it was like I didn't want to risk being late for Asia's pickup and I was bracing myself for a difficult confrontation and debated on whether I should change my whole outfit or bring a disguise just to distance myself from the version of me that was upset. I ended up just taking off my cap. Turns out there was a whole misunderstanding where she was feeling nauseous after going to the w
