@@ -47,4 +47,22 @@ Back to work we go 🙃. Tmrw: Riverside
 
 About 30 min left in shift. Let's GOOOOO! Nah, actually these shifts aren't that bad. The remaining tasks are just trying to be productive, after first recording a few thoughts. 
 
-I had an add-in for 12:50 but it wasn't too bad, just from Catalyst to Tioga Hall in Muir. I thought about heading back to base but it was like I didn't want to risk being late for Asia's pickup and I was bracing myself for a difficult confrontation and debated on whether I should change my whole outfit or bring a disguise just to distance myself from the version of me that was upset. I ended up just taking off my cap. Turns out there was a whole misunderstanding where she was feeling nauseous after going to the w
+I had an add-in for 12:50 but it wasn't too bad, just from Catalyst to Tioga Hall in Muir. I thought about heading back to base but it was like I didn't want to risk being late for Asia's pickup and I was bracing myself for a difficult confrontation and debated on whether I should change my whole outfit or bring a disguise just to distance myself from the version of me that was upset. I ended up just taking off my cap. Turns out there was a whole misunderstanding where she was feeling nauseous after going to the hospital and brought up the longer route since she thought she was gonna hurl.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 13, 2023**
+
+I've enjoyed hanging out and goofing off, but now I really have to handle business. Because it's come to the point where I need to remember that I'm a student, so learning is my job. Riverside was quite a refreshing change of scenery I must admit. As was the night time run.
+
+Too much to lose. Stay focused bruh
+
+I mean, I know it's hard but come on, you have to at least try. I'm not trying to get finessed by myself.
+
+Niema fr got us doing Aho-Corasick automaton stuff for PA6 I'm like relax bruh.
