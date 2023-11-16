@@ -66,3 +66,31 @@ Too much to lose. Stay focused bruh
 I mean, I know it's hard but come on, you have to at least try. I'm not trying to get finessed by myself.
 
 Niema fr got us doing Aho-Corasick automaton stuff for PA6 I'm like relax bruh.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 14, 2023**
+
+McDT Debut. PA6 was too easy.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 15, 2023**
+
+"HEATING UP" PLAYLIST DROPPED ALONG WITH RIVFA23 🔥🔥🔥. WE NOT FINISHED. KEEP BURNING!!! Mr. Miyagi drill beat makes me get super serious and focused like it's the last five minutes of the fourth quarter and we need to score a touchdown to win.
+
+Barely on any sleep the past few days, my sleep debt is nearing 30% so tonight, I'm foregoing dinner and going straight to bed. Had some boneless wings with Sebastian at Dirty Birds. First time going there in all my years at UCSD. It was really loud in there and had a lot of TVs showing stuff like sports and also fail and trick shot compilations. The music was also super loud. I kinda get what Ed means now about eating at restaurants which are super loud. I mean, when we were at Cane's, I thought the disco balls, Elvis, and pictures/decorations on the walls representing American culture were part of the experience or maybe I'm so used to it. But at Dirty Birds it was super loud to the point where it was causing me to feel overwhelmed by so much stimuli. I don't think I've woken up not tired in a while. I mean, even in Riverside I still got up around 9a. But then went back to bed for another hr or so.
+
+Also did you notice that many movies and TV shows would not be able to connect emotionally with their audience without a classical music soundtrack? I mean, just listening to classical music makes my life feel 20x more cinematic even if it's something super normal like me typing or taking the bus or walking.
