@@ -174,7 +174,7 @@ TAs going on strike today, so ochem lab cancelled for this week. Although I like
 
 Guess who I saw on campus today? 
 
-Bryan, Tobi, Kevin, and Sauol (if that's how you spell it)
+Bryan, Tobi, Kevin, and Saul
 
 People in Geisel 1st floor are a little too loud for my taste. And did you see the dudes dapping up everybody at the table?  
 
