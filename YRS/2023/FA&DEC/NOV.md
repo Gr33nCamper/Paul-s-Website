@@ -77,7 +77,9 @@ Niema fr got us doing Aho-Corasick automaton stuff for PA6 I'm like relax bruh.
 
 **Nov 14, 2023**
 
-McDT Debut. PA6 was too easy.
+McDT Debut. PA6 was too easy. 
+
+Super chill day at home, I think it's good to have a balance between the familiar and foreign. This was a much-needed break since I don't want to be outside all the time with no place to return to.
 
 &nbsp;
 
@@ -94,3 +96,17 @@ McDT Debut. PA6 was too easy.
 Barely on any sleep the past few days, my sleep debt is nearing 30% so tonight, I'm foregoing dinner and going straight to bed. Had some boneless wings with Sebastian at Dirty Birds. First time going there in all my years at UCSD. It was really loud in there and had a lot of TVs showing stuff like sports and also fail and trick shot compilations. The music was also super loud. I kinda get what Ed means now about eating at restaurants which are super loud. I mean, when we were at Cane's, I thought the disco balls, Elvis, and pictures/decorations on the walls representing American culture were part of the experience or maybe I'm so used to it. But at Dirty Birds it was super loud to the point where it was causing me to feel overwhelmed by so much stimuli. I don't think I've woken up not tired in a while. I mean, even in Riverside I still got up around 9a. But then went back to bed for another hr or so.
 
 Also did you notice that many movies and TV shows would not be able to connect emotionally with their audience without a classical music soundtrack? I mean, just listening to classical music makes my life feel 20x more cinematic even if it's something super normal like me typing or taking the bus or walking.
+
+First rain since Sep 30. It was quite a welcome change and I got to wear my red Columbia raincoat with the converse sneakers.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 16, 2023**
+
+These postlabs will be put in the grave quicker than an enemy tank facing a berserking hammer.
