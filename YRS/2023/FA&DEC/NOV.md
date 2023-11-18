@@ -110,3 +110,29 @@ First rain since Sep 30. It was quite a welcome change and I got to wear my red 
 **Nov 16, 2023**
 
 These postlabs will be put in the grave quicker than an enemy tank facing a berserking hammer.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 17, 2023**
+
+Friendsgiving food was fire, got fresh cuts, tried Arby's, and wore flannels. Friendly Feud was slightly infuriating bc we barely lost but it was still very entertaining. Many of the rhymes for "grateful" sound like made-up words. Also the South Carolina not being on the list of 13 colonies was like cmon bruh.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 18, 2023**
+
+Up until almost 4a last night working on slides, but it was way more engaging then I thought bc seeing those old photos from my past made me realize that many events had to take place to lead me to where I am, like how was I to know that being the outcast on the WHS Quiz Bowl team and not talking to anyone or buzzing in and just going along with people on the Berkeley campus would be an event prior to something like getting to know peers and late night talks or jam sessions or board games or McFellowship.
+
+We at the Scripps Ranch library. Handling business
