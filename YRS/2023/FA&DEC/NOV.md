@@ -136,3 +136,17 @@ Friendsgiving food was fire, got fresh cuts, tried Arby's, and wore flannels. Fr
 Up until almost 4a last night working on slides, but it was way more engaging then I thought bc seeing those old photos from my past made me realize that many events had to take place to lead me to where I am, like how was I to know that being the outcast on the WHS Quiz Bowl team and not talking to anyone or buzzing in and just going along with people on the Berkeley campus would be an event prior to something like getting to know peers and late night talks or jam sessions or board games or McFellowship.
 
 We at the Scripps Ranch library. Handling business
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Nov 29, 2023**
+
+Yeah yeah, I know it's been a while guys. I didn't really write here since I was really just restingk. It was a mix of me calling Sebastian, doing walks outside, and I guess all there is to say is to look at the pics of the fall foliage and the videos of me walking around in the neighborhood bc the trees and nature were excellent. It showed me what I didn't realize I had before I left, but also what San Diego exclusive stuff: namely scenic highways, open space, and non-uniformity in surrounding cities. In San Diego, you have places like Poway, Valley Center, Liberty Station, Scripps Ranch, Carmel Mtn, Julian, Downtown, Coronado, and Old Town to name a few. But none of these are really similar to each other. Meanwhile, in the Bay Area, you'll notice that places like Fremont, Newark, Union City, Sunnyvale, Hayward, Milpitas, San Mateo, etc. don't really look too different from one another. Well, okay, I'd argue that Fremont has the best nature preserves (Mission Peak, Coyote Hills, Vargas Plateau, Quarry Lakes, Alameda Creek, Lake Elizabeth) but out of them all but maybe that's the hometown bias showing itself. All have similar places like shopping plazas, nice apartment complexes, some parks, and schools. The architecture style is pretty standard. Also I just noticed that there's a lot of gray and industrial development in the Bay Area which I don't really like so much since my affinity for cities dropped dramatically over the summer. I really want to visit some states with lots of trees like Michigan, Indiana, Oregon, and Washington. I wonder if Louisiana will have that many trees. Guess Sebastian and I will find out soon enough. See, after Dad told me it was quite risky to try going to Oregon in the winter bc of snow and ice, we decided to travel along the southern US states instead. 
+
+Ya brother on 3 hr 33 min of sleep. I'm losing my sanity and also I was falling asleep in the M187a lecture. Today was not a good day to sit in the front rows. Well, there was plenty of space at least. It's 19:00 so an hr and a half left in my shift. Oh, also Prof Lahiri got a fresh cut. He was lookin clean as heck. 
