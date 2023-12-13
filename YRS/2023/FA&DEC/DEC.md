@@ -21,3 +21,19 @@ Fall quarter is over in one week. Gotta knock out these two postlabs. IT'S TOO E
 Classical music might be the purest representation of emotion, free from any messages or associations with man-made things. Like the chill beats I listen to are nice and all but they're often linked to other images, which aren't always natural (e.g. "Beef" beat sounding like something you'd hear in a casino lounge late at night, "Hell Shell" beat makes me think of a haunted carnival / walking into a cathedral on a cold October evening / 90s digital era of the box computers, walkmans, and arcades). Another thing is I enjoy listening to music to resonate with emotions and images without lyrics more than I used to. I remember going to a SF symphony performance when I was younger and being super bored since there were no pictures. Now, I think I'd be on the edge of my seat hearing it. As long as the pieces are unique since I find those more entertaining than the classics, at least as of now.
 
 Yesterday as I was sitting in Geisel 7th floor looking at the fog outside and listening to classical music, I suddenly got an image of me as a painter holding an easel and canvas and wearing a beret and a button up shirt and coat. Something Victorian in style, that people might have worn in England or France. Another thing I can see myself wearing is a tailcoat plus a top hat and cane, kind of like Willy Wonka. As for long coats with the belts, those look cool but are a bit expensive and when would I wear them? 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Dec 13, 2023**
+
+AZ. TMR. FINISH FINAL.
+
+Listening to some chill instrumental beats and jotting some thoughts down. Thought about going to the park, but I gotta finish the cs100 practice final and final. Also I've been finding it more comfortable to work from home towards the end of the quarter. The thing about Geisel is, it's a little too quiet sometimes and I don't really get to personalize the space. Another thing is I've kind of not liked being outside where too many people know me because it's like u guys are my fam but I need some time alone too. I'm more drawn to things that are peaceful as heck instead of super intense. That's shown in my music playlists, clothing, and well I guess it's a philosophy from Richard Carlson. Slowed and reverb is not it for movement, it's better for late night contemplation. I was listening to the Broke Boi slowed instrumental and it didn't fit the writing mood.
+
+This quarter blazed by. Lately, I've been feeling like I don't know what to feel. It's the first quarter I've actually enjoyed in a while instead of feeling like it's just pain on pain. People I've gotten to know and spend time with, stuff I do outside of class like going on hikes, walks, or diners, a super fun job that doesn't involve handling customer complaints, my favorite season of the year with the trees and cold weather, trips throughout the quarter (Julian daytrip, Riverside weekend, Thanksgiving holiday).
