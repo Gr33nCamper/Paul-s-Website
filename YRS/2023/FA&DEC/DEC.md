@@ -41,3 +41,19 @@ This quarter blazed by. Lately, I've been feeling like I don't know what to feel
 CSE100 FINAL COMPLETE. WE OUT. 
 
 Okay there's still work, last two shifts of the year. I'm on like 4 hrs of sleep though. It was super hot last night. Haven't even packed yet. But can you believe it? Also YouTube got super old. I just don't feel like watching anything anymore. Or playing Tanki. All I had this afternoon was a banana, a biscuit with honey, a mug of milk, and a slice of pepperoni pizza. I need sleep. Everything is jarringly bright. Ok this is better. I just put on the orange cap and shades.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Dec 26, 2023**
+
+Good evening. Just wanted to say that sometimes you need a break from people and that's okay. My church fam is important and all, but sometimes there's so much pressure to keep doing stuff that it feels suffocating. But it shouldn't feel like a chore right? I don't know, personally, I just wanted some peace and quiet w/o apartment mates asking me idiotic questions. Bc that's exactly why I don't like staying in the apartment with them for too long. Ok, if it's just Gideon and I, it's not that bad. Ryan and I isn't awful either. But for Bryan, it's like... ooh you're really lucky we live together and that God is our maker for otherwise I would REALLY let you have it. 
+
+Taking a break shouldn't be seen as ditching the tribe. I think taking personal time to reflect is important. Traveling is really good for resetting and expanding your view of the world. Actually, anything that takes you outside your bubble (aka comfort zone) is pretty good. Also with that many people, you really think everybody is gonna be super close with each other? And you seriously don't think some people drive each other nuts after a while? For me, it was mounting pressure I felt to be good and set an example right. I have high expectations for how I should be like especially in front of others and my reputation but that shouldn't come in front of being a genuine person and valuing relationships right? Idk, after the testimony I kinda just wanted to hide away bc I don't really like to talk to people afterwards about the presentation/performance.
+
+CoryxKenshin got old btw. I'm done with gaming videos. I'd rather see stuff from real life. Recently I like ones where people do imitations of real life situations like types of people or midwest life or different cultures but not sus. Okay, I did walk close to the edge of the cliff today. But don't worry, I stepped back to the guardrail because I knew what was gonna happen. 9 times out of 10 you fall if you try to balance on the edge. Not always, but your own willpower is only so strong and luck is not always on your side. It's like the story of Samson the judge and how he kept living life dangerously, as if there was a reset button on life. He had a lot of potential, being both strong and intelligent, but it was ultimately wasted on cheap thrills and pleasures. I don't know where I'm going with this. I guess I'm trying to say that we can't exactly trust our sheep instinct and especially since I'm a young man, I need a lot of self-control. But that's what God's commands are for.
