@@ -57,3 +57,15 @@ Good evening. Just wanted to say that sometimes you need a break from people and
 Taking a break shouldn't be seen as ditching the tribe. I think taking personal time to reflect is important. Traveling is really good for resetting and expanding your view of the world. Actually, anything that takes you outside your bubble (aka comfort zone) is pretty good. Also with that many people, you really think everybody is gonna be super close with each other? And you seriously don't think some people drive each other nuts after a while? For me, it was mounting pressure I felt to be good and set an example right. I have high expectations for how I should be like especially in front of others and my reputation but that shouldn't come in front of being a genuine person and valuing relationships right? Idk, after the testimony I kinda just wanted to hide away bc I don't really like to talk to people afterwards about the presentation/performance.
 
 CoryxKenshin got old btw. I'm done with gaming videos. I'd rather see stuff from real life. Recently I like ones where people do imitations of real life situations like types of people or midwest life or different cultures but not sus. Okay, I did walk close to the edge of the cliff today. But don't worry, I stepped back to the guardrail because I knew what was gonna happen. 9 times out of 10 you fall if you try to balance on the edge. Not always, but your own willpower is only so strong and luck is not always on your side. It's like the story of Samson the judge and how he kept living life dangerously, as if there was a reset button on life. He had a lot of potential, being both strong and intelligent, but it was ultimately wasted on cheap thrills and pleasures. I don't know where I'm going with this. I guess I'm trying to say that we can't exactly trust our sheep instinct and especially since I'm a young man, I need a lot of self-control. But that's what God's commands are for.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Dec 30, 2023**
+
+Back from Reno safely. Talked with Jack and got to an understanding of how I can better manage my anger. I thought Trip was gonna chew me out for not praying for the freshman guys, and then I started reflecting on how I feel like I've been neglecting my relationship with God and haven't rooted myself in His Word which is why I feel like I didn't see the purpose of what I was doing in FA23 and got a bit irritated. It got to the point where it felt like I was being expected to do so much w/o attending to my own need to be alone and reflect. But that's why I like being back at home. Sometimes you don't feel like dealing with apartment mates and want to be in your childhood home where you can really reflect on your past, without people from your past popping up. Since, you know, basically all the people from high school you moved on from and even old friends who were not real ones. So you can just focus on being alone and thinking with yourself, since you know yourself better than outside observers.
