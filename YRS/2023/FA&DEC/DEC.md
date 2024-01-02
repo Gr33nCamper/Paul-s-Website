@@ -69,3 +69,15 @@ CoryxKenshin got old btw. I'm done with gaming videos. I'd rather see stuff from
 **Dec 30, 2023**
 
 Back from Reno safely. Talked with Jack and got to an understanding of how I can better manage my anger. I thought Trip was gonna chew me out for not praying for the freshman guys, and then I started reflecting on how I feel like I've been neglecting my relationship with God and haven't rooted myself in His Word which is why I feel like I didn't see the purpose of what I was doing in FA23 and got a bit irritated. It got to the point where it felt like I was being expected to do so much w/o attending to my own need to be alone and reflect. But that's why I like being back at home. Sometimes you don't feel like dealing with apartment mates and want to be in your childhood home where you can really reflect on your past, without people from your past popping up. Since, you know, basically all the people from high school you moved on from and even old friends who were not real ones. So you can just focus on being alone and thinking with yourself, since you know yourself better than outside observers.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Dec 31, 2023**
+
+Beat Little Misfortune, watched _The Zookeeper's Wife_ and some of _Meg 2: The Trench_, got curry pizza and visited MegaMart, and 49ers got the #1 seed! I'M LIKE LET'S GOOOOOOOO. 
