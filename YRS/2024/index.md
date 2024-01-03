@@ -1,32 +1,31 @@
-[J]
+[J](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI/JA)
 
-[F]
-
-&nbsp;
-
-[M]
-
-[A]
-
-[M]
+[F](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI/FE)
 
 &nbsp;
 
-[J]
+[M](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SP/MR)
 
-[J]
+[A](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SP/AP)
 
-[A]
-
-&nbsp;
-
-[S]
-
-[O]
-
-[N]
+[M](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SP/MY)
 
 &nbsp;
 
-[D]
+[J](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SM/JN)
 
+[J](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SM/JY)
+
+[A](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SM/AU)
+
+&nbsp;
+
+[S](https://gr33ncamper.github.io/Paul-s-Website/YRS/FA/2024/SE)
+
+[O](https://gr33ncamper.github.io/Paul-s-Website/YRS/FA/2024/OC)
+
+[N](https://gr33ncamper.github.io/Paul-s-Website/YRS/FA/2024/NV)
+
+&nbsp;
+
+[D](https://gr33ncamper.github.io/Paul-s-Website/YRS/WI/2024/DE)
