@@ -1,3 +1,15 @@
+[WI](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI)
+
+[SP](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SP)
+
+[SM](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SM)
+
+[FA](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/FA)
+
+&nbsp;
+
+&nbsp;
+
 [JA](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI/JA)
 
 [FE](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI/FE)
