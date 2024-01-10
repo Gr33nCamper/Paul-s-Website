@@ -1,4 +1,4 @@
-[WI](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WI/index)
+[WI](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/WNT/index)
 
 [SP](https://gr33ncamper.github.io/Paul-s-Website/YRS/2024/SP/index)
 
