@@ -1,5 +1,7 @@
 **Jan 1, 2024**
 
+Started the New Year with a grocery store run to Raley's for a smoothie and _Meg 2: The Trench_
+
 &nbsp;
 
 &nbsp;
@@ -7,6 +9,8 @@
 &nbsp;
 
 **Jan 2, 2024**
+
+_Migration_ was rather enjoyable. First Fairwood Cafe visit since Dec 2022. Da food was fire
 
 &nbsp;
 
