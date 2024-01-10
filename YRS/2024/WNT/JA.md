@@ -43,3 +43,7 @@ Oh, I forgot to mention that I'm 34% in sleep debt. Alameda Sr Retreat was engag
 I only slept 4 and a half hrs last night and my balance is 5h 15m. I only have two nights to catch up on sleep, because Fri night is probably at most 8 hrs bc of TFN and getting up at 8a. But those HAVE to be before winter retreat because if I'm going in there with that little sleep in the bank, I'm not gonna be able to get much out of it despite having every intention to engage with the messages. Father, I only need enough energy to get to the next refuel station.
 
 Solo trips seem a lot more appealing now. But maybe I don't want to be driving for super long alone. Unless it's in a place with lots of trees and nature. Not a windy mountain road.
+
+First time picking up passenger on HC, realized I had been missing one stop on the loop bc the route changed since the time Sam showed me what the route was.
+
+Was falling asleep in CS105 lecture. Gideon might have to hand off da iClicker to Josh tonight. I considered skipping M184 lecture and M171A discussion and just napping from 3p to 6a tomorrow but I was like nah I'm already here. Ate some curry pork rice from TapEx with a Coca-cola. Dr. Pepper is better than I remembered bc I was downing it like nobody's business at McDonald's last night with James Lee.
