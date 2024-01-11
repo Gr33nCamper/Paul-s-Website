@@ -44,6 +44,18 @@ I only slept 4 and a half hrs last night and my balance is 5h 15m. I only have t
 
 Solo trips seem a lot more appealing now. But maybe I don't want to be driving for super long alone. Unless it's in a place with lots of trees and nature. Not a windy mountain road.
 
-First time picking up passenger on HC, realized I had been missing one stop on the loop bc the route changed since the time Sam showed me what the route was.
+First time picking up passenger on HC, realized I had been missing one stop on the loop for the past two times bc the route changed since the time Sam showed me what the route was. 😅
 
 Was falling asleep in CS105 lecture. Gideon might have to hand off da iClicker to Josh tonight. I considered skipping M184 lecture and M171A discussion and just napping from 3p to 6a tomorrow but I was like nah I'm already here. Ate some curry pork rice from TapEx with a Coca-cola. Dr. Pepper is better than I remembered bc I was downing it like nobody's business at McDonald's last night with James Lee.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 11, 2024**
+
+Got around 8 and a half hrs of sleep last night, but I still felt slightly tired. It's ok, the sleep debt got cut by ~10%. Also, I only got two pickups and there's a sizeable gap in between so I reckon I could get some BK before heading back w/o raising suspicion.
+
+Yesterday there were so many times my head almost fell straight forward and hit my desk in lecture bc I was so tired. Not even water and gum chewing helped, so at the end I started doing the eye-scanning thing they teach us in Triton Transit so that you're prepared if someone or something unexpectedly pops out of the side of the road and I think that helped. Also in the M171a discussion, I was writing down all the stuff as quickly as possible and taking pics of the board even though most of it wasn't even super difficult or novel bc I wanted to keep myself occupied to not get bored and fall asleep. And the room was warm even when I took off my jacket.
