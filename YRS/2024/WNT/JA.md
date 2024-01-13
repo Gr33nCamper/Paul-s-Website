@@ -59,3 +59,19 @@ Was falling asleep in CS105 lecture. Gideon might have to hand off da iClicker t
 Got around 8 and a half hrs of sleep last night, but I still felt slightly tired. It's ok, the sleep debt got cut by ~10%. Also, I only got two pickups and there's a sizeable gap in between so I reckon I could get some BK before heading back w/o raising suspicion.
 
 Yesterday there were so many times my head almost fell straight forward and hit my desk in lecture bc I was so tired. Not even water and gum chewing helped, so at the end I started doing the eye-scanning thing they teach us in Triton Transit so that you're prepared if someone or something unexpectedly pops out of the side of the road and I think that helped. Also in the M171a discussion, I was writing down all the stuff as quickly as possible and taking pics of the board even though most of it wasn't even super difficult or novel bc I wanted to keep myself occupied to not get bored and fall asleep. And the room was warm even when I took off my jacket.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 11, 2024**
+
+Was super lost in deep thought about my existence and the purpose of my life earlier this afternoon as the instrumental and backing vocals of "Tuesday" by Drake and iLoveMakonnen reverberated through my head via mental radio. Walking between class, going down steps, seeing the crisp red leaves on the American sweetgums.
+
+Wow, first time staying in Geisel until closing time this year.
+
+Before I forget, what I would like to be addressed about during Winter Retreat is not simply doubling down on the idea of taking joy in suffering (as Christ did on the cross so that suffering like he did, we will certainly resurrect as he did), but rather how to anchor myself in God's Word and have faith through storms of life. Actually that's a bit too generic if you ask me because I already know what the answer to that will be: practice praying and reading the Bible more consistently.
+
+What I'm taking into retreat is this: How do I daily lay down my arms and relinquish control of my life to God? If I want to live a life that is well-spent, giving everything I have so that even in the face of death, I would not be afraid of what's next, what does that look like?
