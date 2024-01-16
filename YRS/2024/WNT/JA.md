@@ -75,3 +75,19 @@ Wow, first time staying in Geisel until closing time this year.
 Before I forget, what I would like to be addressed about during Winter Retreat is not simply doubling down on the idea of taking joy in suffering (as Christ did on the cross so that suffering like he did, we will certainly resurrect as he did), but rather how to anchor myself in God's Word and have faith through storms of life. Actually that's a bit too generic if you ask me because I already know what the answer to that will be: practice praying and reading the Bible more consistently.
 
 What I'm taking into retreat is this: How do I daily lay down my arms and relinquish control of my life to God? If I want to live a life that is well-spent, giving everything I have so that even in the face of death, I would not be afraid of what's next, what does that look like?
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 16, 2024**
+
+How is Jan more than halfway done? Retreat was a blur. Everything's racing by. I'm just trying to collect my thoughts. Seems like these days I hardly get a chance to do so. Even though it's not the dreaded block schedule from last quarter, I don't have so much time that it's so easy to find a block of time for thinking but also prayer and Scripture reading (but you see we need to know where we are to know how to get to where we should be).
+
+Late for work today. Bummer. I was up briefly at like 7:20 but then I went back to bed and didn't get up until 9a which is when my shift starts. Luckily, Sebastian was generous enough to send me to the station on short notice. 
+
+Lack of sleep is seriously not a minor handicap. It completely derails my mental capacity and heavily affects my irritability. Can't believe I used to stay up until 3 or 4 in the morning doing meaningless activities and getting up around noon (soph and a lot of jr year). Wish someone told me getting up early isn't necessarily being tryhard but trying to make the most use out of your time and more in sync with our biological clock rhythm.
+
+Crap, CS105 hw due in two days.
