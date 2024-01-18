@@ -32,7 +32,7 @@ This was my annual random perusal of IG and FB and I made a few profile and cove
 
 **Jan 10, 2024**
 
-That feeling when your only time to be able to even work through your own thoughts and emotions is at work...😔. And over break you've been traveling so long trying to find peace and time to think. On trains, planes, cars, and all that, you've been trying to think most about what's important, but really it's more like you're trying to leave something behind.  
+That feeling when your only time to be able to even work through your own thoughts and emotions is at work...😔. And over break you've been traveling so long trying to find peace and time to think. On trains, planes, cars, and all that, you've been trying to think most about what's important, but it's more like trying to leave something behind.  
 
 Reading some of my old writing assessment stories from 4th grade were pretty entertaining. In fact, we could probably do something like that rn. Just kidding, I'd need to freestyle something on the fly. Or make it based on what's happening right now. You can't rush deep reflective thoughts. It takes time, let it flow. 
 
@@ -91,3 +91,18 @@ Late for work today. Bummer. I was up briefly at like 7:20 but then I went back 
 Lack of sleep is seriously not a minor handicap. It completely derails my mental capacity and heavily affects my irritability. Can't believe I used to stay up until 3 or 4 in the morning doing meaningless activities and getting up around noon (soph and a lot of jr year). Wish someone told me getting up early isn't necessarily being tryhard but trying to make the most use out of your time and more in sync with our biological clock rhythm.
 
 Crap, CS105 hw due in two days.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 18, 2024**
+
+Two points general violation at work for being 30 min late. COB.
+
+I had a conversation with a follower of Islam on Library walk. He was saying stuff like how God would save his prophets and if Jesus was His son, he wouldn't let him die. Also he was saying that sin is not punished with death and that Allah loves to forgive so all you need to do is repent. Taking the C.S. Lewis approach from _Mere Christianity_, there's a lot from Islam that is correct, I don't have to dismiss everything. But where it differs from Christianity, Chrisitianity must be correct and it must be wrong.
+
+Gonna do some DT. For the first time in a long time. Time to reconnect with my Heavenly Father.
