@@ -116,8 +116,16 @@ Gonna do some DT. For the first time in a long time. Time to reconnect with my H
 
 **Jan 23, 2024**
 
-Isn't it funny how the things we used to think mattered when we were younger really don't
+Isn't it funny how the things which mattered so much to me when I was younger really mean nothing now.
 
 I'm kind of curious to see my old journal entries bc if they were like tweets then there could be some really funny remarks but also it could be super cringe bc I was like 17/18. Currently at work, but this is the short shift. Foot traffic was surprisingly heavier than I thought at 9:50.
 
-When the senior group chat fr just became a place where people say happy birthday instead of planning fellowship. #Bruh.
+Yesterday's rain was quite nice. I know a lot of Californians don't like the rain but I like rain and cloudy weather interspersed between sunny days to prevent monotony. If it's a whole string of them, then it's a little gloomy. But if I had to choose between rain and cloudy weather, I'd pick rain because the sound of rain is quite calming and also the air is way fresher afterwards. For cloudy days, the whole sky looks the same the whole day.
+
+When the senior group chat fr just became a place where people say happy birthday instead of planning fellowship. #Bruh
+
+Fleeing temptations and tracing them back to the root of unbelief takes serious work. The push-up method works quite well though for fighting passions of my former ignorance. I call it "Fighting mental exhaustion by physical exertion".
+
+Alright I actually need to catch up on M184 lectures and start HW2. Can't miss this Friday's Book Club or Friday lunch DT.
+
+Decided to skip the Chem 168 lecture today because it's hard for me to pay attention anyways, might as well work on assignments and catch up on lectures in the meantime.
