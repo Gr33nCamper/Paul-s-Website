@@ -106,3 +106,18 @@ Two points general violation at work for being 30 min late. COB.
 I had a conversation with a follower of Islam on Library walk. He was saying stuff like how God would save his prophets and if Jesus was His son, he wouldn't let him die. Also he was saying that sin is not punished with death and that Allah loves to forgive so all you need to do is repent. Taking the C.S. Lewis approach from _Mere Christianity_, there's a lot from Islam that is correct, I don't have to dismiss everything. But where it differs from Christianity, Chrisitianity must be correct and it must be wrong.
 
 Gonna do some DT. For the first time in a long time. Time to reconnect with my Heavenly Father.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 23, 2024**
+
+Isn't it funny how the things we used to think mattered when we were younger really don't
+
+I'm kind of curious to see my old journal entries bc if they were like tweets then there could be some really funny remarks but also it could be super cringe bc I was like 17/18. Currently at work, but this is the short shift. Foot traffic was surprisingly heavier than I thought at 9:50.
+
+When the senior group chat fr just became a place where people say happy birthday instead of planning fellowship. #Bruh.
