@@ -147,3 +147,8 @@ I was in PC earlier and thought I could go in my usual spot with the couches aga
 You know what's really dumb? Triton Transit doesn't even let you take personal videos in the UCSD vehicles. So I guess I'll have to cut out the cart driving scenes if I upload videos to YouTube. But otherwise, I'll keep the personal footage bc what are they gonna do about it?
 
 Feeling hungry but the line for Panda Express was insane. Think I'll wait a little longer for the line to thin. But it's starting to gnaw away at me. I'll head out by 1p.
+
+I'll have to talk to Victor tomorrow. It's no doubt going to be about today's incident.
+Well, if he wants to fire me, he can go ahead and fire me. If it's suffering for what I did, then there's nothing to boast about and nothing more to be said. I'm not afraid to face consequences.
+
+Mental note: Don't try to finesse the system again anytime soon. Just do your duties and lay low okay? We don't want to get fired for something that was completely avoidable.
