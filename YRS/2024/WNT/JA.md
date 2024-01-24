@@ -152,3 +152,5 @@ I'll have to talk to Victor tomorrow. It's no doubt going to be about today's in
 Well, if he wants to fire me, he can go ahead and fire me. If it's suffering for what I did, then there's nothing to boast about and nothing more to be said. I'm not afraid to face consequences.
 
 Mental note: Don't try to finesse the system again anytime soon. Just do your duties and lay low okay? We don't want to get fired for something that was completely avoidable.
+
+Okay, actually Triton Transit was supposed to be the backup plan if I didn't get employed by end of SP24 so it would kinda sorta maybe probably be nice to still be working for them at that time haha 😅
