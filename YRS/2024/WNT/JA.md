@@ -154,3 +154,5 @@ Well, if he wants to fire me, he can go ahead and fire me. If it's suffering for
 Mental note: Don't try to finesse the system again anytime soon. Just do your duties and lay low okay? We don't want to get fired for something that was completely avoidable.
 
 Okay, actually Triton Transit was supposed to be the backup plan if I didn't get employed by end of SP24 so it would kinda sorta maybe probably be nice to still be working for them at that time haha 😅
+
+That's what I get for not living out Christian morality as described in _Mere Christianity_ where C.S. Lewis says that it's not about what we do, but a certain quality of character since a bad tennis player can sometimes hit good shots, but that doesn't make him a good player. Meanwhile a good tennis player "... is the man whose eye and muscles and nerves have been so trained by making innumerable good shots that they can now be relied on. They have a certain tone or quality which is there even when he is not playing, just as a mathematician's mind has a certain habit and outlook which is there even when he is not doing mathematics" (C.S. Lewis Book III, Ch.2).
