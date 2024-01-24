@@ -129,3 +129,21 @@ Fleeing temptations and tracing them back to the root of unbelief takes serious 
 Alright I actually need to catch up on M184 lectures and start HW2. Can't miss this Friday's Book Club or Friday lunch DT.
 
 Decided to skip the Chem 168 lecture today because it's hard for me to pay attention anyways, might as well work on assignments and catch up on lectures in the meantime.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 24, 2024**
+
+I'm mad. What happened was I parked the shuttle for about an hour at the KOP loop and watched YouTube. I was kind of hoping they wouldn't notice, but I guess either I got reported or they viewed the cam. Part of me is mad at myself because I thought I was so clever as to get away with it when it was for that long. Another part of me is angry with TT for making rules like how we can't miss stops. But that rule isn't unreasonable. It's just me when I'm angry not being able to evaluate my actions objectively.
+
+I have a love hate relationship with justice. Because although my innermost being is satisfied when justice is served, like when the general from RRR and his wife died or criminals get what they deserve, I often protest when I'm getting punished. It's hard not to have bias since self-love kicks in and I'm so quick to come up with an excuse for myself. When I take a stab from the blade of justice, it feels a lot different.
+
+I was in PC earlier and thought I could go in my usual spot with the couches against the wall outside the theater. But we had to move bc someone said there was an event. Made a whole loop around PC and now I'm in Geisel. To be honest, I kind of just wanna forget about the whole thing that just happened at work. Hopefully I don't get suspended. But if I do, then I gotta take it like a man. And in the future, I'll make sure I keep looping at least 12 times around the Health Campus in 3 hrs. 
+
+You know what's really dumb? Triton Transit doesn't even let you take personal videos in the UCSD vehicles. So I guess I'll have to cut out the cart driving scenes if I upload videos to YouTube. But otherwise, I'll keep the personal footage bc what are they gonna do about it?
+
+Feeling hungry but the line for Panda Express was insane. Think I'll wait a little longer for the line to thin. But it's starting to gnaw away at me. I'll head out by 1p.
