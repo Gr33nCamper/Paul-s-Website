@@ -156,3 +156,15 @@ Mental note: Don't try to finesse the system again anytime soon. Just do your du
 Okay, actually Triton Transit was supposed to be the backup plan if I didn't get employed by end of SP24 so it would kinda sorta maybe probably be nice to still be working for them at that time haha 😅
 
 That's what I get for not living out Christian morality as described in _Mere Christianity_ where C.S. Lewis says that it's not about what we do, but a certain quality of character since a bad tennis player can sometimes hit good shots, but that doesn't make him a good player. Meanwhile a good tennis player "... is the man whose eye and muscles and nerves have been so trained by making innumerable good shots that they can now be relied on. They have a certain tone or quality which is there even when he is not playing, just as a mathematician's mind has a certain habit and outlook which is there even when he is not doing mathematics" (C.S. Lewis Book III, Ch.2).
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 25, 2024**
+
+Good news! I didn't get fired. But I did get another violation point. Another one and I get suspended.
+
+No more excuses. I'll just focus on doing the best job possible. Time to toe the line. In fact, I'll take another look at the updated HC route. Then I'll fill you guys in on some more of my thoughts.
