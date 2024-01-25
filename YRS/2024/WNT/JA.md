@@ -167,4 +167,4 @@ That's what I get for not living out Christian morality as described in _Mere Ch
 
 Good news! I didn't get fired. But I did get another violation point. Another one and I get suspended.
 
-No more excuses. I'll just focus on doing the best job possible. Time to toe the line. In fact, I'll take another look at the updated HC route. Then I'll fill you guys in on some more of my thoughts.
+No more excuses. I'll just focus on doing the best job possible. Toe the line. In fact, I'll take another look at the updated HC route. Winter chill lofi is really great for calming down. 
