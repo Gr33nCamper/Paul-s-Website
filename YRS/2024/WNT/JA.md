@@ -168,3 +168,29 @@ That's what I get for not living out Christian morality as described in _Mere Ch
 Good news! I didn't get fired. But I did get another violation point. Another one and I get suspended.
 
 No more excuses. I'll just focus on doing the best job possible. Toe the line. In fact, I'll take another look at the updated HC route. Winter chill lofi is really great for calming down. 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 29, 2024**
+
+Seems like here is one of the few places I can openly talk about how I'm feeling. Senior year has subverted 99% of my expectations. Even though my expectations were kinda vague. Ok, maybe they were a bit more specific than I'd like to admit. I thought we as seniors would be in actual leadership positions. And that TFNs would continue. And how we'd have more senior hangouts. But really it's been like the staff have just been encouraging organically formed relationships. Guess what? I'm so inept at socializing w/o shock factor or acting weird. And even DT stuff has been not as organized. I'm like come on man. It's been hard to bond with the younger guys. It's gonna sound so dumb when I say it but one of my biggest fears is that they're gonna think I'm corny as heck when I show my true personality.
+
+I don't know, I think I overall expected senior year to have more handholding and structure to follow but they're like we give you the abstract data type and now it's up to you to implement it and I'm like forget you this is so vague and isn't this a really high bar? 
+
+Seems like summer before senior year was a good gauge for how senior year would be like. A lot of people are doing their own thing (To be fair that's been me partly also. I mean come on, I'd be lying if I said I just absolutely LOVE hanging out with my apartment mates all the time. Do you know how annoying some of them can be? Like brother, you thought the road trip was just to see trees?? Yes but also to escape those guys like golly can I get even a single breath of air alone? 😡😡) At least four people in our class have fallen away in attendance. But maybe all we need is a catalyst to organize events.
+
+And since when did the sr group chat become a place for only saying happy birthday? I mean, heck, at this rate we might as well make a whole separate chat just for that. Call it "Senior Bday Regards" or something. Like, these guys fr have me scrolling past miles of this just to see where we're going to meet at for something. Not to mention all the lurkers like I know we said we wouldn't cut you guys off but something still peeves me about having so many inactive members like when you have a hash table but it's super memory inefficient since you have so many unallocated slots just to avoid collisions. So you have super fast lookup but in reality you're only using like 10% of the slots.
+
+I talked to Bryan yesterday about him being super loud in the office and he gave the expected bullcrap about how we were watching the 49ers game (as if that makes it okay to scream in the office) and how he doesn't think we're studying (I guess someone doesn't have eyes) and if he had more time, I bet he'd probably say something like how in HIS eyes HE'S not even being that loud (guess what buddy you don't own the office), blah blah blah blah just shut up bruh (trust me guys, I know what it's like to have a loud roommate whose idea of a fun time is playing video games with friends on discord like #GetALife #GetReal #UrNotAsCoolAsUThink. Just read some of my older journal entries and you'll find a half dozen of those about Casper).
+
+You know how forgiveness is saying that your relationship with someone means more to you than the wrong they did to you? Well, I'll tell you honestly that the relationship with Bryan was not even the first thing on my mind when I was telling him that because it was just using logic and a calmer voice to see if he would take it seriously or just make some flippant remark like "ok" as if that's gonna make me want to cut you some slack.
+
+It's unseasonably warm up here on the 7th floor like do they not have any AC or what. First time here since summer. 69ºF in late Jan come on bruh. It could be worse though. Summer I was dying. Especially when people in my apartment think stuffy = comfortable. #StopTheCap.
+
+Pretty view from the near top of Geisel. Sunny days. Winter chill guitar. Peace.
+
+You know what else is peaceful? Not having to deal with annoying people. Like roommates. Especially if they put in 0 effort to improve. And then I have to keep dying just to keep a relationship alive. Like at some point you start wondering what's even worth it. Some arguments aren't even worth having just because I only have so much energy. But is this what makes relationships so hard? If Bryan is a gift from God, then I suppose his primary role is to test the absolute crap out of all of our patiences and for me to not explode in a rage-filled fit when he provokes me.
