@@ -194,3 +194,13 @@ It's unseasonably warm up here on the 7th floor like do they not have any AC or 
 Pretty view from the near top of Geisel. Sunny days. Winter chill guitar. Peace.
 
 You know what else is peaceful? Not having to deal with annoying people. Like roommates. Especially if they put in 0 effort to improve. And then I have to keep dying just to keep a relationship alive. Like at some point you start wondering what's even worth it. Some arguments aren't even worth having just because I only have so much energy. But is this what makes relationships so hard? If Bryan is a gift from God, then I suppose his primary role is to test the absolute crap out of all of our patiences and for me to not explode in a rage-filled fit when he provokes me.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Jan 30, 2024**
+
+I'm done faking. If someone is making me feel uncomfortable, I'll just outright say "This is making me feel uncomfortable". Or you know what? If you don't want someone to intentionally make you feel uncomfortable, just do the "I couldn't even care 1% strategy" and just keep being relaxed. If they can't make you uncomfortable, you're not gonna start stuttering or acting like a fool. In fact, I have half a mind to say "WHO DO YOU THINK YOU ARE SON SIT THE FREAK DOWN". Or maybe just calmly say "I do not appreciate the way you are behaving right now". Because it feels like people think just because I don't do loud outbursts that often all of a sudden they can just disrespect me all the time. Some people done forgot that I have a hot temper. And they're getting way too comfortable playing with fire. I guess some people didn't pay attention to their firefighter school assembly.
