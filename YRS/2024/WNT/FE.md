@@ -36,3 +36,7 @@ Was gassy the whole night and this morning, I felt the mild, medium, and hot sal
 Sebastian actually a real one for giving all those rides in the rain. I think he was quite entertained by PvZ yesterday.
 
 Now it's time to get going on Chem 168 and M184 Hw.
+
+I keep failing when I try to fight the German army inside me. But I must pick myself up again, repent, and try again.
+
+Might need a decaf coffee at this rate. So much on my plate rn.
