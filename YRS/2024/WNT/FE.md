@@ -40,3 +40,27 @@ Now it's time to get going on Chem 168 and M184 Hw.
 I keep failing when I try to fight the German army inside me. But I must pick myself up again, repent, and try again.
 
 Might need a decaf coffee at this rate. So much on my plate rn.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 12, 2024**
+
+Did not feel like waking up today for DT, but pushed through since what is my faith made of if not these small moments. Got McBreakfast afterwards. Turns out they stopped selling the toasted bagels. I'm like cob.
+
+THE M184 MIDTERM WAS TOO EASY.
+
+Presentation night and grilled burgers exceeded my expectations. Now I wish I had sent in a presentation, but since it's no longer WI23, I'm no longer as obsessed with quantum mechanics, but I would probably put something historical or about geography like the forested regions of the US that Sebastian and I traveled to.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 13, 2024**
+
+Ever wish you had a small house in a small town suburb with a desktop computer where you could just go for a few days or a weekend and just get a bunch of work done while looking at awesome scenery like trees and have access to basic conveniences but without the hustle and bustle? And being able to be more isolated to really focus? Even better if it's raining most of those days. But you'd be inside so it wouldn't really matter that much.
