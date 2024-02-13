@@ -64,3 +64,5 @@ Presentation night and grilled burgers exceeded my expectations. Now I wish I ha
 **Feb 13, 2024**
 
 Ever wish you had a small house in a small town suburb with a desktop computer where you could just go for a few days or a weekend and just get a bunch of work done while looking at awesome scenery like trees and have access to basic conveniences but without the hustle and bustle? And being able to be more isolated to really focus? Even better if it's raining most of those days. But you'd be inside so it wouldn't really matter that much.
+
+Ping Pong with Sujal was a success! 🏓 LGGGGGGG
