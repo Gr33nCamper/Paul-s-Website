@@ -66,3 +66,21 @@ Presentation night and grilled burgers exceeded my expectations. Now I wish I ha
 Ever wish you had a small house in a small town suburb with a desktop computer where you could just go for a few days or a weekend and just get a bunch of work done while looking at awesome scenery like trees and have access to basic conveniences but without the hustle and bustle? And being able to be more isolated to really focus? Even better if it's raining most of those days. But you'd be inside so it wouldn't really matter that much.
 
 Ping Pong with Sujal was a success! 🏓 LGGGGGGG
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 14, 2024**
+
+Getting suspended on Valentine's Day. Wouldn't want it any other way 🙃. When you incorrectly assume being slightly late to an early morning shift is gonna be acceptable. I'm like ok my bad.
+
+Jk, I think it's just attendance points. I mean, if we really want to avoid anything like this from happening in the future, we just need to get up around 5:50 everyday, not just W and Th so then it's just a habit. At a certain point, some things just aren't worth it.
+
+And also what am I supposed to say? I had ear pain so I couldn't sleep properly? But I know that's not the real reason. The only two true reasons would be I didn't finish my CS105 HW ahead of time which meant I stayed up later and I tried out the ear pick. The other reason is that I got up around 4:30 briefly but went back to bed since I was still tired. Should have went to bed earlier or jumped up at the 4:30a time. Basically there's nothing I can argue in terms of justice. Whatever I say doesn't change the fact I was late. And even though I didn't miss any pickups, they're still punishing me so I can't even cite that as a reason.
+
+I suppose I can appeal to humanity or forgiveness. But that's probably not gonna work. If I say something like suppose you were in my shoes with four classes and idk should I bring up stuff like how the Bay Area storms hit my family hard and our fence got knocked down and how not too long ago Mom had to get surgery for her arm? It's not just like I decided to be late one day. But I guess they expect you to exercise more forethought. Whatever. Thankfully you don't have to enjoy punishments to uphold justice. I can dislike being suspended and yet still agree to getting suspended right? Or do I have to enjoy being punished? Isn't that just masochism?
+
+Enough of that. I'm just listening to calming underwater piano pieces. Read some of my old college app and HUM essays last night. I was impressed.
