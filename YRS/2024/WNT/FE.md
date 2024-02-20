@@ -84,3 +84,15 @@ And also what am I supposed to say? I had ear pain so I couldn't sleep properly?
 I suppose I can appeal to humanity or forgiveness. But that's probably not gonna work. If I say something like suppose you were in my shoes with four classes and idk should I bring up stuff like how the Bay Area storms hit my family hard and our fence got knocked down and how not too long ago Mom had to get surgery for her arm? It's not just like I decided to be late one day. But I guess they expect you to exercise more forethought. Whatever. Thankfully you don't have to enjoy punishments to uphold justice. I can dislike being suspended and yet still agree to getting suspended right? Or do I have to enjoy being punished? Isn't that just masochism?
 
 Enough of that. I'm just listening to calming underwater piano pieces. Read some of my old college app and HUM essays last night. I was impressed.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 19, 2024**
+
+Longest, most unexpected Presidents' Day Weekend so far. Unexpected local gems discovered in Carmel Mtn. and Scripps Ranch, Sawires Supper. Kinda just feel like watching CoryxKenshin or playing PvZ2 but we all know those have a tendency to go overboard very easily. I mean, heck, on Thu night I was at Geisel for like an hr playing Frostbite Caves. The mammoth boss was actually tough.
+
+Off to bed now, I'll write more tmr.
