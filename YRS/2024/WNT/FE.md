@@ -93,6 +93,20 @@ Enough of that. I'm just listening to calming underwater piano pieces. Read some
 
 **Feb 19, 2024**
 
-Longest, most unexpected Presidents' Day Weekend so far. Unexpected local gems discovered in Carmel Mtn. and Scripps Ranch, Sawires Supper. Kinda just feel like watching CoryxKenshin or playing PvZ2 but we all know those have a tendency to go overboard very easily. I mean, heck, on Thu night I was at Geisel for like an hr playing Frostbite Caves. The mammoth boss was actually tough.
+Longest, most unexpected Presidents' Day Weekend so far. Unexpected local gems discovered in Carmel Mtn and Scripps Ranch, Sawires Supper. Kinda just feel like watching CoryxKenshin or playing PvZ2 but we all know those have a tendency to go overboard very easily. I mean, heck, on Thu night I was at Geisel for like an hr playing Frostbite Caves. The mammoth boss was actually tough.
 
 Off to bed now, I'll write more tmr.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 20, 2024**
+
+The bus fr left early today. Fortunately, it doesn't actually take 6 min to walk to the station when you know the shortcut to take.
+
+Mack's earplugs work great. I slept super quickly, but this is the second night in a row one earplug fell out. Also might have to clean ears again later today. Especially the left ear. Looked up how to properly insert earplugs and apparently the twist method might work better. Also prior handwashing was recommended.
+
+Found out there's this Sichuanese TV show from 2001 called 方脑壳的故事 ("The Story of Fang Nao Ke") and it's quite entertaining but doesn't have anything seriously questionable in it as far as I can tell.
