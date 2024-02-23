@@ -118,10 +118,22 @@ Found out there's this Sichuanese TV show from 2001 called 方脑壳的故事 ("
 
 &nbsp;
 
-**Feb 21, 2024**
+**Feb 22, 2024**
 
 Guess who got chewed out at work today? Turns out I should have taken a right and gone the local route through the health campus to central trolley station instead of making a left since that leads to an intersection where only right turns are allowed. In upholding the traffic laws, I ended up making a much larger loop and when I saw the giant sloping road with the hill and freeway entrances, I felt a fear I was gripped by a fear I hadn't felt in a long time and my heart rate went way up. It's kind of like when you're on a roller coaster except unlike a ride, this one doesn't end after a minute or two. There was also only ~ a quarter tank left in the Honda Civic.
 
 Mock interview was unexpectedly illuminating. In a good way.
 
 Knocking out the Project for CS105 and then starting M184 HW6. Then I should get started on M171A HW5 and studying since the final midterm is next Thurs and I did super trash on the first one bc I didn't know how to solve ELPs at the time. And on that note, I should probably get going on HW4 for CS105 since my group wants to rendezvous on Sat night I'm like relax bruh U think I have infinite time??
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 23, 2024**
+
+Why do I feel 100x more alive recording a video for CS105Project at like 3 in the morning? I mean, it's actually kind of a peaceful, yet somehow exhilarating vibe??
+
+Time to knock out the M184 HW and head to bed. 
