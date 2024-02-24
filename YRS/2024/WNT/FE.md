@@ -137,3 +137,27 @@ Knocking out the Project for CS105 and then starting M184 HW6. Then I should get
 Why do I feel 100x more alive recording a video for CS105Project at like 3 in the morning? I mean, it's actually kind of a peaceful, yet somehow exhilarating vibe??
 
 Time to knock out the M184 HW and head to bed. 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 24, 2024**
+
+Don't you just detest when your freedom to be left alone gets repeatedly infringed upon at work? Me too.
+
+"WhY wErE U lAtE 4 WoRk? iSn'T dRiViNg CaRtS uR LiFe PuRpOsE??" and I'm like do me a favor and just stop talking as if you know me like that. There's other stuff going on in my life. I have other thoughts occupying my head like my own inner nature, finding peace and meaning, connecting with God, but also stuff like ping pong and sichuanese.
+
+Don't you see that it's kind of difficult to make it to work on time when it's so early in the morning? I mean, at least by only public transportation or biking? But no, you choose to look only at my failures. Never did I hear a thank you for picking people up on time or not being late at all last week. But the second I make an honest mistake like a wrong turn on a shuttle loop or forgetting that I can't legally make a left turn and that also there aren't U-turns until a bunch of other intersections later, everybody is on me. I hate having to deal with some dumb incident every other week and explaining why I'm not trying to sabotage the entire Triton Transit Operation. Why do you immediately assume I have ill intentions against the company? It's like they expect me to be perfect. Whoever said that work gives your life meaning would be right. If they were referring to a company with a good work culture. Not this idiocy where I can't even be left alone for two weeks. I know my credit isn't that great right now, but could you cut me some slack? The sooner you loosen your grip around my neck, the sooner I can actually do my job. I mean, how would you like it if someone constantly breathed down your neck? Would you feel comfortable?
+
+Should I open with a "Good morning Jacqueline! How are you today? Ah wonderful! Here's to an incident-free day! Because incidents just love to tail me" ? Or "Good morning! My, do I love working here! There's nothing I'd rather be doing rn! 😃" -said no one ever.
+
+Personally, I don't really mind honest incidents. Between you and I, they often make things more interesting. It's just that certain people get super peeved when they arise and want to make sure I get chewed out. But I guess "work operation" and "efficiency" take higher precedence than keeping things from getting boring. Alas, I guess variety and nonuniformity are not welcome there. I guess you think a boring life is a small cost for high efficiency. For me, that is a price I simply refuse to pay. That's my biggest problem with a fixed schedule.
+
+I guess I just figured I needed to do less to be left alone, not more. It's cool, I'm not gonna let them ruin my whole day. You guys think I care even 1% that you don't like me? As if your approval is what I was seeking. Yet, the Lord knows I wasn't trying to cut corners this time around. So even if they punish me for not doing anything wrong, I know my Heavenly Father sees that it is unjust suffering. Because in what world is it wrong to obey the traffic laws? And next time I'll keep the radio on Channel 3 and take a right instead of a left when I exit the station lot. It's not that serious.
+
+That feeling as if no one gets or trusts you. And when nobody can vouch for you. That's the killer. When it feels as if you're the only one who understands your side of the story and the other person simply assumes you're the bad guy and there's nothing you can do about it. Like ok, you didn't really give me a chance to explain, but sure I guess I'm wrong again. You win. (This is definitely a fair case, right guys? Not like I needed a fighting chance or anything)
+
+But anyways, I don't really feel like talking about that anymore. I'd rather beat some zombies or play ping pong. Or watch Adam Bobrow or Pongfinity or The Story of Fang Nao Ke.
