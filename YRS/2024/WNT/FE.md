@@ -161,3 +161,13 @@ I guess I just figured I needed to do less to be left alone, not more. It's cool
 That feeling as if no one gets or trusts you. And when nobody can vouch for you. That's the killer. When it feels as if you're the only one who understands your side of the story and the other person simply assumes you're the bad guy and there's nothing you can do about it. Like ok, you didn't really give me a chance to explain, but sure I guess I'm wrong again. You win. (This is definitely a fair case, right guys? Not like I needed a fighting chance or anything)
 
 But anyways, I don't really feel like talking about that anymore. I'd rather beat some zombies or play ping pong. Or watch Adam Bobrow or Pongfinity or The Story of Fang Nao Ke.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 28, 2024**
+
+This week has been an unexpected one so far and it's only the third day of the work week. Especially yesterday. To name a few things, I went to SunGod Lawn for personal DT (Geisel fire alarm went off) and was super deep in thought about the "crown of righteousness" which God will award all those who "love his appearing" and then Kristian happened to be outside around the same area. Oh! Also I got the $15 Curry UpNow lunch combo deal and it was FIRE. Afterwards, watched a little bit of Fang Nao Ke's story and it was quite amusing. Since I don't know all the Sichuanese or Mandarin terms for things, I had to kind of use context clues to figure out what was going on, but that made it more interesting to be honest, since it's not like you're just brainlessly consuming content. Biked back home around 10p and it was super peaceful since barely anyone was on the road. Got an inner tube leak in the last few yards on the way back home, which was kind of a bummer. Bryan helped me patch it up. This marks both the first inner tube repair of Gideon's bike and my first repair of 2024. The patch kit Dad bought in 2019 is still pulling weight I'm like LET'S GOOOOOO. Now, I gotta get the front brake checked out probably tmr. 
