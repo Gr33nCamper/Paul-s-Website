@@ -177,3 +177,15 @@ Yeah the Geisel Table 15 min study session wasn't awkward at all.
 First time going to lectures and discussion in like 3 wks. Worth it. Chewed a lot of gum but still dozed off in M184. 
 
 Almost weeping tears at the bus stop bc the Courage the Cowardly Dog Accordion Theme Arrangement is so beautiful and evokes a distant memory of senior year of high school. S/o to C AwH.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Feb 29, 2024**
+
+Felt like I was going to pass out. That's what happens when you're super in sleep debt and are carrying so many items at once. Doesn't help that the library is so packed like everybody trying to be here or what? Save some seats for the rest of us.
+
+Please help me Father. I'm dying.
