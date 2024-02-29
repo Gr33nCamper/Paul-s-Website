@@ -189,3 +189,5 @@ Almost weeping tears at the bus stop bc the Courage the Cowardly Dog Accordion T
 Felt like I was going to pass out. That's what happens when you're super in sleep debt and are carrying so many items at once. Doesn't help that the library is so packed like everybody trying to be here or what? Save some seats for the rest of us.
 
 Please help me Father. I'm dying.
+
+Went to Urgent Care. Doctor said nothing abnormal, just midterm anxiety. Says stay away from energy drinks and coffee, sleep at least 7 hrs a night, regular exercise, stay hydrated, eat proteins.
