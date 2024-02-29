@@ -174,4 +174,6 @@ This week has been an unexpected one so far and it's only the third day of the w
 
 Yeah the Geisel Table 15 min study session wasn't awkward at all.
 
+First time going to lectures and discussion in like 3 wks. Worth it. Chewed a lot of gum but still dozed off in M184. 
+
 Almost weeping tears at the bus stop bc the Courage the Cowardly Dog Accordion Theme Arrangement is so beautiful and evokes a distant memory of senior year of high school. S/o to C AwH.
