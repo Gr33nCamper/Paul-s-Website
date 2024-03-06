@@ -35,7 +35,7 @@ You don't know how many Quadratinis and jolly ranchers I ate (I was losing my sa
 
 **Mar 04, 2024**
 
-Super chill day, watched a lot of berleezy and CoryxKenshin. Slept around 4 hrs, then went to DT, came back and napped until afternoon. Got some groceries and had ramen and porkchop for dinner.
+Super chill day, watched a lot of berleezy and CoryxKenshin. Slept around 4 hrs, then went to DT, came back and napped until afternoon. Got some groceries, had ramen and porkchop for dinner. Also played some more ping pong.
 
 &nbsp;
 
