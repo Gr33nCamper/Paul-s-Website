@@ -11,7 +11,7 @@ RS ribeye steak burrito & 7up cake yup
 
 **Mar 02, 2024**
 
-When going to Popeye's becomes a whole day adventure exploring the National Guard base and Hwy 101 along the CA coast to Carlsbad to get Jeni's ice cream. Then you barely make it to ur 8p ride to praise practice at VR bc of ordering pizza at Pauly's Pizza Joint. Also I barely got to do any hw bc of the adventures and playing PvZ2 and beating the Lost City boss and watching berleezy Res Evil village. Then ping pong practice at night with lobs and trying to get backhand and loop more consistent.
+When going to Popeye's becomes a whole day adventure exploring the National Guard base and Hwy 101 along the CA coast to Carlsbad to get Jeni's ice cream. Then you barely make it to ur 8p ride to praise practice at VR bc of ordering pizza at Pauly's Pizza Joint. Also I barely got to do any hw bc of the adventures and playing PvZ2 and beating the Lost City boss and watching berleezy Res Evil village. Then ping pong practice at night with lobs and trying to get backhand and loop more consistent
 
 &nbsp;
 
@@ -25,7 +25,7 @@ When going to Popeye's becomes a whole day adventure exploring the National Guar
 Quiet study hall. This isn't awkward at all.
 
 Burned all my pencil lead and nearly all my paper. Was in the classroom until 11p finishing M171A HW6.
-You don't know how many Quadratinis and jolly ranchers I ate. (I was losing my sanity)
+You don't know how many Quadratinis and jolly ranchers I ate (I was losing my sanity)
 
 &nbsp;
 
