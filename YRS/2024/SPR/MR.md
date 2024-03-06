@@ -24,7 +24,8 @@ When going to Popeye's becomes a whole day adventure exploring the National Guar
 
 Quiet study hall. This isn't awkward at all.
 
-Burned all my pencil lead and used nearly all my paper. In the classroom until 11p finishing M171A HW6 (I was going insane)
+Burned all my pencil lead and nearly all my paper. Was in the classroom until 11p finishing M171A HW6.
+You don't know how many Quadratinis and jolly ranchers I ate. (I was losing my sanity)
 
 &nbsp;
 
