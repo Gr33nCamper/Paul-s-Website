@@ -79,4 +79,6 @@ Super hungry rn. Also guess how much an EKG was gonna cost me yesterday? $69!! I
 
 Disturbed by what I heard from the front desk of dispatch just now. Trust me, you don't wanna know.
 
-Guess we're gonna be learning a whole lot about orbits and stablizers today. Only one pickup scheduled for 10:20, so we got some time. The morning relaxation at the station is rather nice, actually. Listening to lofi or classical and journaling or watching some YouTube.
+Guess we're gonna be learning a whole lot about orbits and stablizers today. Only one pickup scheduled for 10:20, so we got some time. The morning relaxation at the station is rather nice, actually. Listening to lofi or classical and journaling or watching some YouTube
+
+HOLY COW I FORGOT HOW GRIPPING THE STORY FOR REBIRTH IS. THANK YOU 69MICHI!!
