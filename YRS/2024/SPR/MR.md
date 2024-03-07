@@ -77,6 +77,6 @@ Only slept 4 hrs last night bc I had a nap from 5 to 8. Randomly decided to chec
 
 Super hungry rn. Also guess how much an EKG was gonna cost me yesterday? $69!! I'm like nah bruh. Today is the final followup appointment with Student Health as far as I know. Panda express is kinda getting old so I think I'll go with a Subway sandwich and with raspberry cheesecake cookie today.
 
-I was disturbed by what I heard from the front desk of dispatch just now. Trust me, you don't wanna know.
+Disturbed by what I heard from the front desk of dispatch just now. Trust me, you don't wanna know.
 
-Guess we're gonna be learning the heck out of orbits and stablizers today.
+Guess we're gonna be learning a whole lot about orbits and stablizers today. Only one pickup scheduled for 10:20, so we got some time. The morning relaxation at the station is rather nice, actually. Listening to lofi or classical and journaling or watching some YouTube.
