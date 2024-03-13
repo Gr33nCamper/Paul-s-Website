@@ -73,12 +73,24 @@ Oranges, Raisin Bran Crunch, and toast = S-tier breakfast at home. Pancakes and 
 
 **Mar 07, 2024**
 
-Only slept 4 hrs last night bc I had a nap from 5 to 8. Randomly decided to check out webtoons again and Rebirth (the super awesome comic about the zombie apocalypse and the dad who can control blood and whose son can store objects in earrings) is on pause. I'm like relax with the heat bruh, I like a good story but this is getting more complicated then I thought.
+Only slept 4 hrs last night bc I had a nap from 5 to 8. Randomly decided to check out webtoons again and Rebirth (the super awesome comic about the zombie apocalypse and the dad (Noah) who can control blood and whose son can store objects in earrings) is on pause. I'm like relax with the heat bruh, I like a good story but this is getting more complicated then I thought.
 
-Super hungry rn. Also guess how much an EKG was gonna cost me yesterday? $69!! I'm like nah bruh. Today is the final followup appointment with Student Health as far as I know. Panda express is kinda getting old so I think I'll go with a Subway sandwich and with raspberry cheesecake cookie today.
+Super hungry rn. Also guess how much an EKG was gonna cost me yesterday? $69!! I'm like nah bruh. Today is the final followup appointment with Student Health as far as I know. Panda Express is kinda getting old so I think I'll go with a Subway footlong and raspberry cheesecake cookie today.
 
 Disturbed by what I heard from the front desk of dispatch just now. Trust me, you don't wanna know.
 
 Guess we're gonna be learning a whole lot about orbits and stablizers today. Only one pickup scheduled for 10:20, so we got some time. The morning relaxation at the station is rather nice, actually. Listening to lofi or classical and journaling or watching some YouTube
 
 HOLY COW I FORGOT HOW GRIPPING THE STORY FOR REBIRTH IS. THANK YOU 69MICHI!!
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 13, 2024**
+
+Where did Tuesday go? I only had 5 hr 50 min of sleep and wanted to nap after lunch ($15 Chicken Tikka Masala rice plate combo w/ Naan). Some part of me that's almost irrationally driven to do wild things decided why not just stay at FAH for almost 3 full hrs after doing DT. The funny thing is, I wasn't that tired and being in the shade kind of helped. There were these large crows jumping around near me which made me slightly uneasy. FAH is actually quite comfortable. The dimensional difference is huge between our makeshift ping pong table and an actual table. I was getting beat by Ryan even though he wasn't using the standard moves like loop, chop, push, since he returns super quick and can reach the ball without moving too much. But in a real game, the table is so large that there's always at least one corner you can hit to where the guy can't readily reach. The table is large enough that you simply cannot be everywhere all at once.
+
+I'll probably nap after my shift today. 
