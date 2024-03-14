@@ -94,3 +94,15 @@ HOLY COW I FORGOT HOW GRIPPING THE STORY FOR REBIRTH IS. THANK YOU 69MICHI!!
 Where did Tuesday go? I only had 5 hr 50 min of sleep and wanted to nap after lunch ($15 Chicken Tikka Masala rice plate combo w/ Naan). Some part of me that's almost irrationally driven to do wild things decided why not just stay at FAH for almost 3 full hrs after doing DT. The funny thing is, I wasn't that tired and being in the shade kind of helped. There were these large crows jumping around near me which made me slightly uneasy. FAH is actually quite comfortable. The dimensional difference is huge between our makeshift ping pong table and an actual table. I was getting beat by Ryan even though he wasn't using the standard moves like loop, chop, push, since he returns super quick and can reach the ball without moving too much. But in a real game, the table is so large that there's always at least one corner you can hit to where the guy can't readily reach. The table is large enough that you simply cannot be everywhere all at once.
 
 I'll probably nap after my shift today. Apparently desktop Spotify doesn't like NordVPN bc as soon as I turned it off, Spotify worked as normal. Got added in for a 7:50 pickup and I'm like I kind of thought this would be a peaceful morning shift but yes I love unexpected pickups, thanks bruh 😬😑
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 14, 2024**
+
+More unexpected morning relief pickups #SMH. And during the first 2 minutes of my shift too. U kno how many hrs I slept last night? 5hr 23m. So I'm gonna be napping after my shift ends. Probably eat some cereal and then ... Hold up I still need to go to the M184 discussion at 5p. So at minimum, I need to be up by 4p
+
+Luckily, only two pickups today and one of them is James so it's just a casual workshift (hopefully, unless there are like 5 other unexpected relief pickups). And the windows had so much condensation on them too like u can't be serious bruh. Had to manually wipe the rearview mirrors with the one Panda Express napkin in my pocket. Tbh I just wanted to listen to some chill spring lofi and maybe read some Webtoons and watch the University Challenge quiz show from the UK but then some pesky relief pickups happened. No bother
