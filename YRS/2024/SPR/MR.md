@@ -103,7 +103,7 @@ I'll probably nap after my shift today. Apparently desktop Spotify doesn't like 
 
 **Mar 14, 2024**
 
-More unexpected morning relief pickups #SMH. And during the first 2 minutes of my shift too. U kno how many hrs I slept last night? 5hr 23m. So I'm gonna be napping after my shift ends. Probably eat some cereal and then ... Hold up I still need to go to the M184 discussion at 5p. So at minimum, I need to be up by 4p
+More unexpected morning relief pickups #SMH. And during the first 2 minutes of my shift too. U kno how many hrs I slept last night? 5hr 23m. So I'm gonna be napping after my shift ends. Probably eat some cereal and then ... Hold up I still need to go to the M184 discussion at 5p. So at minimum, I need to be up by 4p.
 
 Luckily, only two pickups today and one of them is James so it's just a casual workshift (hopefully, unless there are like 5 other unexpected relief pickups). And the windows had so much condensation on them too like u can't be serious bruh. Had to manually wipe the rearview mirrors with the one Panda Express napkin in my pocket. Tbh I just wanted to listen to some chill spring lofi and maybe read some Webtoons and watch the University Challenge quiz show from the UK but then some pesky relief pickups happened. No bother
 
@@ -115,7 +115,7 @@ Luckily, only two pickups today and one of them is James so it's just a casual w
 
 **Mar 16, 2024**
 
-How do U think I'm supposed to react when someone explicitly mentions how they feel attracted to married women who are also your mentors and dip on plans with u bc of chasing after females. And then when you invite them to TFNs he always sits in the way back and never stays for the whole thing like what's up with that. People in our church are not monsters and you're not gonna get stabbed. Sometimes you need to be a man. U see the pattern with this guy? It's his life but it isn't something I approve of
+How do U think I'm supposed to react when someone explicitly mentions how they feel attracted to married women who are also your mentors and dip on plans with u bc of chasing after females. And then when you invite them to TFNs he always sits in the way back and never stays for the whole thing like what's up with that. People in our church are not monsters and you're not gonna get stabbed. Sometimes you need to be a man. U see the pattern with this guy? It's his life but it isn't something I approve of.
 
 I mean, I don't really care if the freshmen think I'm weird bc first of all they don't know all of my history and secondly I'm not trying to impress them.
 
