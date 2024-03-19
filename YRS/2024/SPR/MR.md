@@ -157,6 +157,8 @@ You know what spring makes me think of? American suburbia in the 1950s aka littl
 
 **Mar 19, 2024**
 
-Just found out that PewDiePie lives in Japan now, not the UK and Mr Beast partnered with Amazon Prime to make a gameshow.
+Saw the sun shining through the window for the first time since last April, what joy filled my heart at that moment!
+
+Almost sent an email about a conflict with a TT shift and a final on June 10, but I realized I can just put that shift on the tradeboard when the time comes.
 
 Anyways, back to work
