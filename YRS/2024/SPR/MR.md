@@ -11,7 +11,7 @@ RS ribeye steak burrito & 7up cake yup
 
 **Mar 02, 2024**
 
-When going to Popeye's becomes a whole day adventure exploring the National Guard base and Hwy 101 along the CA coast to Carlsbad to get Jeni's ice cream. Then you barely make it to ur 8p ride to praise practice at VR bc of ordering pizza at Pauly's Pizza Joint. Also I barely got to do any hw bc of the adventures and playing PvZ2 and beating the Lost City boss and watching berleezy Res Evil village. Then ping pong practice at night with lobs and trying to get backhand and loop more consistent
+When going to Popeye's becomes a whole day adventure exploring the National Guard base and Hwy 101 along the CA coast to Carlsbad to get Jeni's ice cream. Then you barely make it to ur 8p ride to praise practice at VR bc of ordering pizza at Pauly's Pizza Joint. Also I barely got to do any hw bc of the adventures and playing PvZ2 and beating the Lost City boss and watching berleezy RE8. Then ping pong practice at night with lobs and trying to get backhand and loop more consistent
 
 &nbsp;
 
@@ -119,8 +119,32 @@ How do U think I'm supposed to react when someone explicitly mentions how they f
 
 I mean, I don't really care if the freshmen think I'm weird bc first of all they don't know all of my history and secondly I'm not trying to impress them.
 
-University Challenge Quiz show is almost 100% like Quiz bowl it might be my new favorite thing to watch. Can't believe some team didn't get Faraday within the first clue when they mentioned a constant used to describe the charge of 1 mole of electrons.
+University Challenge Quiz show is almost 100% like Quiz bowl it might be my new favorite thing to watch. Can't believe some team didn't get Faraday within the first clue when they mentioned a constant used to describe the charge of 1 mol of electrons.
 
-Shamrock shake and Leprechaun Lemonade whoo whoo!
+Shamrock shake and Leprechaun Lemonade woohoo!
 
 Lots of ping pong today and also some more bereleezy RE8 and Pongfinity on Youtube. Also washed white towel and knocked out three problems for M171A final hw
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 17, 2024**
+
+Cuba < 1 wk away. Found out about the 7p dinner at Vasquez residence by mere coincidence asking Dave about the Zoom recording and apparently there's a GroupMe chat. American dinner of pork loin, mashed potatoes, mac n cheese, and oven roasted veggies was fire. 
+
+Vons ran out of Canada Dry Fruit Splash.
+
+Glider study lounge is apparently what the space above RS is called. Was surprisingly productive there and played pool at RIMAC after with some peer bros
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 18, 2024**
+
+You know what spring makes me think of? American suburbia in the 1950s aka little boxes on the hillside made of ticky tacky (2019 APUSH exam anyone?) Sometimes I wish I could just drive east to see the green grass, blooming flowers, and trees of the American southeastern states like Kentucky and Arkansas. But since it's super far, that's not something I can readily see. Sunny days look way better than gloomy ones. Got Brothers Family restaurant earlier today and napped for like 1 hr 20 min before I hurriedly watched a discussion video and took the bus to campus for CS105 Final. Part 1 was TOO EASY but Part 2 was a tough cookie.
