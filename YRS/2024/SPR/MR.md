@@ -137,7 +137,7 @@ Cuba < 1 wk away. Found out about the 7p dinner at Vasquez residence by mere coi
 
 Vons ran out of Canada Dry Fruit Splash.
 
-Glider study lounge is apparently what the space above RS is called. Was surprisingly productive there and played pool at RIMAC after with some peer bros
+Glider study lounge is apparently what the space above RS is called. Was surprisingly productive there and played pool at RIMAC after with some Josh, James, Linus, and Gideon
 
 &nbsp;
 
@@ -147,4 +147,4 @@ Glider study lounge is apparently what the space above RS is called. Was surpris
 
 **Mar 18, 2024**
 
-You know what spring makes me think of? American suburbia in the 1950s aka little boxes on the hillside made of ticky tacky (2019 APUSH exam anyone?) Sometimes I wish I could just drive east to see the green grass, blooming flowers, and trees of the American southeastern states like Kentucky and Arkansas. But since it's super far, that's not something I can readily see. Sunny days look way better than gloomy ones. Got Brothers Family restaurant earlier today and napped for like 1 hr 20 min before I hurriedly watched a discussion video and took the bus to campus for CS105 Final. Part 1 was TOO EASY but Part 2 was a tough cookie.
+You know what spring makes me think of? American suburbia in the 1950s aka little boxes on the hillside made of ticky tacky (2019 APUSH exam anyone?) Sometimes I wish I could just drive east to see the green grass, blooming flowers, and trees of the American southeastern states like Kentucky and Arkansas. But since it's super far, that's not something I can readily see. Sunny days look way better than gloomy ones. Got Brothers Family restaurant earlier today and napped for like 1 hr 20 min before I hurriedly watched a discussion video and took the bus to campus for CS105 Final. Part 1 was TOO EASY but Part 2 was thorny.
