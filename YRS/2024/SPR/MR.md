@@ -162,3 +162,19 @@ Saw the sun shining through the window for the first time since last April, what
 Almost sent an email about a conflict with a TT shift and a final on June 10, but I realized I can just put that shift on the tradeboard when the time comes.
 
 Anyways, back to work
+
+Was almost the victim of identity theft today bc I misplaced my wallet. And I found out at the worst possible time, which is after the Math 171A final since they wanted to see ID cards after, but luckily they also accepted the digital ID card. Searched around campus, retracing steps. Turns out it had just fallen out of my pocket while I was driving Cart 0721 and I happened to think of that possibility when I was telling Sebastian. Praise the Lord!!
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 20, 2024**
+
+Gap day. I'll probably nap after my shift ends. Just another three hours or so. Just making a compiled slide deck of all the 2nd half of the Chm168 material to use for tomorrow's midterm. 
+
+It's really foggy this morning. 7:20 might be my earliest pickup so far
+
+KP4 and Cane's Pt2 will happen soon enough relax bruh
