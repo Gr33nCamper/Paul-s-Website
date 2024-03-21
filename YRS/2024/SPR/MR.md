@@ -201,6 +201,6 @@ At least that's one good thing about working at Triton Transit though. At the st
 
 Only one relief dropoff today so far. Found out that the UK flag 🇬🇧 (aka Union Jack) has a proper orientation, so the thick white stripe has to be along the top left on the top and along the side at the bottom, if the flag pole is on the left.
 
-COMPLETED LAST SHIFT OF WI24. LGGGGGGGGGGGG!!!!!!!!!
+COMPLETED LAST SHIFT OF WI24 🫡😤
 
-TO 6:30 AND 7A WORK SHIFTS: BYEEEEEEEEEEEEE BYE BYE BIRRRRRRRRRRRDIE. NO MORE. WE'RE DONE
+NO MORE EARLY MORNING SHIFTS. BYEEEEEEEEEEEEE BYE BYE BIRRRRRRRRRRRDIE
