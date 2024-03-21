@@ -199,4 +199,4 @@ Am I gonna look back on WI24 and laugh one day? I hardly attended lectures and s
 
 At least that's one good thing about working at Triton Transit though. At the station, I don't really see people from our church too often so I get a short break. Phew! It's funny how I didn't truly appreciate all those little solo adventures like taking the train back home or going to Louisiana or going to Riverside by FlixBus or walking to Lake Elizabeth on Thanksgiving Day until now when I hardly have chances to go anywhere or do anything alone.
 
-Only one relief dropoff today so far. Found out that the UK flag (aka Union Jack) has a proper orientation, so the thick white stripe has to be along the top on the top and along the side at the bottom.
+Only one relief dropoff today so far. Found out that the UK flag (aka Union Jack) has a proper orientation, so the thick white stripe has to be along the top left on the top and along the side at the bottom, if the flag pole is on the left.
