@@ -61,7 +61,7 @@ More Turing Machines, halting problem, computability and reductions oh boy
 
 Classical music is growing on me.
 
-Have I mentioned how it's slightly annoying that some people detest anything that isn't familiar to them, like Western or Latin American cuisine? Like cmon bruh, then how am I supposed to get good asian food like sushi, ramen, pho, KBBQ, hot pot, or authentic Chinese food? Oh well. Heck, it's not even that. Some Indian and Middle Eastern cuisine would go a long way.
+Have I mentioned how it's slightly annoying that some people detest anything that isn't familiar to them, like Western or Latin American cuisine? Like cmon bruh, how am I supposed to get good asian food like sushi, ramen, pho, KBBQ, hot pot, or authentic Sichuanese food? Oh well. Heck, it's not even that. Some Indian and Middle Eastern cuisine would go a long way.
 
 Oranges, Raisin Bran Crunch, and toast = S-tier breakfast at home. Pancakes and French toast take the cake at diners. Also who orders toast at diners, isn't that what toasters are for?
 
@@ -115,13 +115,13 @@ Luckily, only two pickups today and one of them is James so it's just a casual w
 
 **Mar 16, 2024**
 
-How do U think I'm supposed to react when someone explicitly mentions how they feel attracted to married women who are also your mentors and dip on plans with u bc of chasing after females. And then when you invite them to TFNs he always sits in the way back and never stays for the whole thing like what's up with that. People in our church are not monsters and you're not gonna get stabbed. Sometimes you need to be a man. U see the pattern with this guy? It's his life but it isn't something I approve of.
+How do U think I'm supposed to react when someone explicitly mentions how they feel attracted to married women who are also your mentors and dip on plans with u bc of chasing after females? And then when you invite them to TFNs he always sits in the way back and never stays for the whole thing like what's up with that. People in our church are not monsters and you're not gonna get stabbed. Sometimes you need to be a man. U see the pattern with this guy? These are his decisions, but I don't necessarily approve of all of them.
 
 I mean, I don't really care if the freshmen think I'm weird bc first of all they don't know all of my history and secondly I'm not trying to impress them.
 
 University Challenge Quiz show is almost 100% like Quiz bowl it might be my new favorite thing to watch. Can't believe some team didn't get Faraday within the first clue when they mentioned a constant used to describe the charge of 1 mol of electrons.
 
-Shamrock shake and Leprechaun Lemonade woohoo!
+Shamrock shake ☘️ and Leprechaun Lemonade woohoo!
 
 Lots of ping pong today and also some more bereleezy RE8 and Pongfinity on Youtube. Also washed white towel and knocked out three problems for M171A final hw
 
@@ -178,3 +178,19 @@ Gap day. I'll probably nap after my shift ends. Just another three hours or so. 
 It's really foggy this morning. 7:20 might be my earliest pickup so far
 
 KP4 and Cane's Pt2 will happen soon enough relax bruh
+
+Watched some CoryxKenshin COD zombies and Black OPs III gameplay, I could vicariously feel the pressure as waves kept coming and there were runners and super zombies. Ended up taking a nap around 3p and getting up at almost 6p but I was refreshed. Lemongrass chicken bento from Trip and Kathleen was delicious.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 21, 2024**
+
+LET'S GOOOOO. LAST 7A SHIFT OF WI24. GOOD RIDDANCE TO THESE EARLY MORNING SHIFTS. THEY WON'T BE MISSED.
+
+I'd rather not have someone chew me out when I'm late as if that's the only that should matter to me in my life. I acknowledge I messed up however I don't know if you're aware, but I happen to care about quite a few other things besides my Triton Transit job. But I'll still try to get up earlier next quarter. And maybe I'll just go to Geisel. Actually, that's probably not gonna happen on Mondays and Fridays since my shifts are at 9a. But having peaceful morning time is great. And I'd enjoy them a lot more when I can do DT at those hours and then listen to chill lofi piano or guitar w/o having to be pestered for relief pickups like please no bruh. Just ask someone else.
+
+Good news is today I don't have any pickups. So I'm hoping I won't get bothered by more than two or three relief pickups or random duties like refueling. Best case scenario is that they don't ask me to do anything for 4 hrs which would be awesome since I didn't feel like doing anything anyway. But that's unlikely. One can still hope though
