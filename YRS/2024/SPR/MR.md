@@ -189,7 +189,7 @@ Watched some CoryxKenshin COD zombies and Black OPs III gameplay, I could vicari
 
 **Mar 21, 2024**
 
-LET'S GOOOOO. LAST 7A SHIFT OF WI24. GOOD RIDDANCE TO THESE EARLY MORNING SHIFTS. THEY WON'T BE MISSED.
+LET'S GOOOOO. LAST SHIFT OF WI24. GOOD RIDDANCE TO THESE EARLY MORNING SHIFTS. THEY WON'T BE MISSED.
 
 I'd rather not have someone chew me out when I'm late as if that's the only that should matter to me in my life. I acknowledge I messed up however I don't know if you're aware, but I happen to care about quite a few other things besides my Triton Transit job. But I'll still try to get up earlier next quarter. And maybe I'll just go to Geisel. Actually, that's probably not gonna happen on Mondays and Fridays since my shifts are at 9a. But having peaceful morning time is great. And I'd enjoy them a lot more when I can do DT at those hours and then listen to chill lofi piano or guitar w/o having to be pestered for relief pickups like please no bruh. Just ask someone else.
 
