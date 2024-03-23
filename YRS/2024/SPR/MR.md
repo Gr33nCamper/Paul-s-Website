@@ -204,3 +204,17 @@ Only one relief dropoff today so far. Found out that the UK flag 🇬🇧 (aka U
 COMPLETED LAST SHIFT OF WI24 🫡😤
 
 NO MORE EARLY MORNING SHIFTS. BYEEEEEEEEEEEEE BYE BYE BIRRRRRRRRRRRDIE
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 22, 2024**
+
+M184 Final was considerably harder than the midterm, but I got answers that I feel confident in based on what I knew to be true to the best of my knowledge. It's oddly relaxing when you're alone taking an exam and you're checking answers with extra time. I almost never leave exam rooms early since it's like why would I give up free time to check if my answers are correct? I made the mistake of being overconfident for my Chm40a final my first quarter and ever since then unless I'm absolutely stumped and no amount of extra time can help me figure something out like for Chm114c where you gotta know what the book said or else it's anyone's guess if your answer is right.
+
+At last, WI24 is over. First time I've been relieved that a quarter is over, since I usually wish it could be longer since it's like that feeling of reaching the end of the road and being like now what? Or like when you finish reading a book. You've been on an awesome journey but your next steps are up to you. We're never gonna be in those lecture halls again and it felt kind of like an adventure.
+
+But not this quarter. I was ready to be done with this quarter. Sports and bonfire was quite refreshing. Especially since we got some Banh Mi. I'll head to bed soon
