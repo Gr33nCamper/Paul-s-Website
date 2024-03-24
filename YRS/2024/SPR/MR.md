@@ -233,4 +233,6 @@ Finally watched Kung Fu Panda 4, it was enjoyable but not super awesome in that 
 
 I got rekt in ping pong bc my loop is not consistent enough to allow me to return the ball enough times to get into a good position
 
-Beat PvZ for the second time, got Towering Wisdom Achievement. The roof strategy is planting many melons and wintermelons and using a bunch of kernels. Papa Johns pizza and calzones for dinner. 
+Beat PvZ for the second time, got Towering Wisdom Achievement. The roof strategy is planting many melons and wintermelons and using a bunch of kernels. Papa Johns pizza and calzones for dinner
+
+GOT A B IN M171A HALLELUJAH 🙌
