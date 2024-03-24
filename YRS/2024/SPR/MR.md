@@ -218,3 +218,19 @@ M184 Final was considerably harder than the midterm, but I got answers that I fe
 At last, WI24 is over. First time I've been relieved that a quarter is over, since I usually wish it could be longer since it's like that feeling of reaching the end of the road and being like now what? Or like when you finish reading a book. You've been on an awesome journey but your next steps are up to you. We're never gonna be in those lecture halls again and it felt kind of like an adventure.
 
 But not this quarter. I was ready to be done with this quarter. Sports and bonfire was quite refreshing. Especially since we got some Banh Mi. I'll head to bed soon
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+**Mar 23, 2024**
+
+Our flight to Miami got cancelled bc of weather issues. Sendoff dinner got cancelled. Our team is working on trying to get a flight for tmr. May have been just what I needed bc now I can be extra rested
+
+Finally watched Kung Fu Panda 4, it was enjoyable but not super awesome in that we got a certified hood classic. I was kind of hoping for more character development from Po and also the whole plot seemed super rushed but maybe that's just bc I'm viewing the movie through the lens of an adult now, not a kid. And the Po's real dad and adopted dad relationship seemed kinda weird bc it was almost like they were into each other in THAT WAY
+
+I got rekt in ping pong bc my loop is not consistent enough to allow me to return the ball enough times to get into a good position
+
+Beat PvZ for the second time, got Towering Wisdom Achievement. The roof strategy is planting many melons and wintermelons and using a bunch of kernels. Papa Johns pizza and calzones for dinner. 
